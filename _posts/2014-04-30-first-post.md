@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "First Post"
+title: "FirstPost"
 date: 2014-04-30
 ---
 
