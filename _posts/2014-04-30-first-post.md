@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "FirstPost"
+title: "Why we moved to san francisco"
 date: 2014-04-30
 ---
 
