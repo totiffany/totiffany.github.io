@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 
 With articles running the gamut of the human and natural sciences, ‘National Geographic’ is a magazine with an unusually broad scope. Now it’s turned its hand to food, with the second UK spin-off from the main magazine since the launch of ‘Traveller’ in 2010.
