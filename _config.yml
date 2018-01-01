@@ -1,2 +1,3 @@
 name: Tiffsite
 markdown: kramdown
+permalink: /:title
