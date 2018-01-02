@@ -1,0 +1,172 @@
+---
+# Front matter comment to ensure Jekyll properly reads file.
+---
+
+// Typography //
+
+// Sans
+@import url('https://fonts.googleapis.com/css?family=Source+Sans+Pro:400,400i,700');
+
+$sans: 'Source Sans Pro', sans-serif;
+
+// Serif
+@import url('https://fonts.googleapis.com/css?family=PT+Serif:700');
+
+$serif:'PT Serif', serif;
+
+$base-font-size:   19px !default;
+$uppercase-font-size: 0.895;
+
+@mixin uppercase($font-size){
+     text-decoration: none;
+     text-transform: uppercase;
+     letter-spacing: 1px;
+     font-size: $font-size * $uppercase-font-size;
+}
+
+// Spacing
+$unit:1em;
+
+
+/* color */
+$black: #1A1A1A;
+$accent:#00CCAA;
+
+body {
+     color:$black;
+     font-family: $sans;
+     font-size: 19px;
+     line-height: 30px;
+}
+
+h1, h2, h3, h4, h5, h6 {
+     // reset
+     margin: 0;
+     padding: 0;
+     border: 0;
+     font-size: 100%;
+     font: inherit;
+     vertical-align: baseline;
+     // end reset
+
+     font-family:$serif;
+
+     a{
+          text-decoration: none;
+     }
+}
+
+h1{
+     font-size: 60px;
+     line-height: 66px;
+}
+
+h2, h3, h4, h5, h6 {
+     font-size: 28px;
+     line-height: 36px;
+}
+
+/* unvisited link */
+a {
+     color:$black;
+
+     text-decoration: underline;
+     text-decoration-skip:ink;
+     -moz-text-decoration-skip:ink;
+     text-decoration-color: $accent;
+     -webkit-text-decoration-color: $accent;
+
+}
+
+/* visited link */
+a:visited {
+
+}
+
+/* mouse over link */
+a:hover {
+     text-decoration: underline;
+     text-decoration-skip:ink;
+     -moz-text-decoration-skip:ink;
+     text-decoration-color: $accent;
+     -webkit-text-decoration-color: $accent;
+}
+
+/* selected link */
+a:active {
+opacity:0.75;
+}
+
+header{
+     text-align: center;
+     margin:$unit*2 0 $unit*3 0;
+
+     h1 {
+          font-family: $sans;
+          font-size: 23px;
+          line-height: 30px;
+     // reset
+     margin: 0;
+     padding: 0;
+     border: 0;
+     font-size: 100%;
+     font: inherit;
+     vertical-align: baseline;
+     // end reset
+     }
+}
+
+#logo{
+     text-transform: uppercase;
+     text-decoration: none;
+     font-weight: 700;
+     font-size: 23px;
+     letter-spacing: 1.53px;
+}
+
+nav {
+
+     ul {
+          padding:0;
+          margin: 0;
+     }
+
+     li {
+          list-style-type: none;
+          display: inline-block;
+          padding:0 $unit;
+     }
+     a{
+          @include uppercase($base-font-size);
+     }
+
+     a:hover {
+          text-decoration: none;
+          border-bottom: solid 1px;
+     }
+}
+
+.container{
+     width: 600px;
+     margin: 0 auto;
+}
+
+.date{
+     @include uppercase($base-font-size);
+}
+
+.posts {
+     margin:0;
+     padding:0;
+
+li{
+     list-style-type: none;
+     margin-bottom: $unit * 2;
+
+}
+}
+.post-header{
+     text-align: center;
+     margin:$unit*3 0;
+}
+

@@ -1,3 +1,4 @@
 name: Tiffsite
 markdown: kramdown
 permalink: /:title
+github: [metadata]
