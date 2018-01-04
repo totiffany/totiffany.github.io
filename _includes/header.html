@@ -1,5 +1,11 @@
 <header>
-	<a id="logo" href="/">Tiffsite </a>
+
+{% if page.url == "/" %}
+   <h1><a id="logo" href="/">Gosh Garnet</a></h1>
+{% else %}
+	<a id="logo" href="/">Gosh Garnet</a>
+{% endif %}
+
 	<nav>
 	<ul>
 		<li><a href="/">Blog</a></li>
