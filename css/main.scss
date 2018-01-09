@@ -26,6 +26,7 @@ $uppercase-font-size: 0.895;
 
 // Spacing
 $unit:1em;
+$px-unit:8px;
 
 
 /* color */
@@ -60,6 +61,7 @@ h1, h2, h3, h4, h5, h6 {
 h1{
      font-size: 60px;
      line-height: 66px;
+     margin-bottom: $px-unit*2;
 }
 
 h2{
@@ -117,12 +119,16 @@ header{
      }
 }
 
-#logo{
+h1#logo, #logo{
      text-transform: uppercase;
      text-decoration: none;
      font-weight: 700;
      font-size: 23px;
      letter-spacing: 1.53px;
+     margin-bottom: $unit * .5;
+     a{
+     text-decoration: none;
+     }
 }
 
 nav {
@@ -152,6 +158,19 @@ nav {
      margin: 0 auto;
 }
 
+p img {
+    max-width: 600px;
+    height: auto;
+}
+p.full-width img{
+     max-width: 100vw;
+    position: relative;
+    left: 50%;
+    right: 50%;
+    margin-left: -50vw;
+    margin-right: -50vw;
+}
+
 .date{
      @include uppercase($base-font-size);
 }
@@ -171,3 +190,7 @@ li{
      margin:$unit*3 0;
 }
 
+.container img {
+    max-width: 600px;
+    height: auto;
+}
