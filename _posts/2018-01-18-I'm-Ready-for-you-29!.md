@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 Historically, I've had a bit of a hard time with my birthday. It's January 3rd – The day you usually go back to work and school after a nice holiday break, so everyone is in a bad mood. It's a little too close to Christmas to remember to get another gift. Everyone just started their new year's resolutions so they don't want to eat cake or anything sugary. And the idea of having one more get together is unthinkable. I could go on and on.
 
@@ -14,7 +14,3 @@ Before Hazel and our move, Brian started a new job back in February. We didn't t
 And finally, Brian had a pretty big procedure on his foot in December. After a year of ongoing foot pain and several doctor appointments, he was diagnosed with a benign bone tumor. They don't know what causes these types of tumors, but they are terribly painful. The procedure went well, and we are feeling really grateful to live in an area with easy access to cutting edge medicine (thank you UCSF!). He's recovering well and will need to take it easy for the next year.
 
 It was, without exaggeration, a life-changing year. We are TIRED! And looking forward to a (hopefully) quieter 2018 and last year of my 20's. Hazel is keeping us busy, but is such a joy and light in our lives. I feel lucky to be married to a man who is kind and funny and a good match for me. We still like each other! And I feel like I'm getting to that sweet spot where I'm really, truly happy. That said, I think a few relaxing, beach-side vacations this year are in order. Any suggestions?
-
-
-
- 
