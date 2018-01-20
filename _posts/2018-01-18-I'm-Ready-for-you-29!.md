@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-Historically, I've had a bit of a hard time with my birthday. It's January 3rd – The day you usually go back to work and school after a nice holiday break, so everyone is in a bad mood. It's a little too close to Christmas to remember to get another gift. Everyone just started their new year's resolutions so they don't want to eat cake or anything sugary. And the idea of having one more get together is unthinkable. I could go on and on.
+Historically, I've had a bit of a hard time with my birthday. It's January 3rd – The day you usually go back to work and school after a nice holiday break, so everyone is in a bad mood. It's a little too close to Christmas to remember to get another gift. Everyone just started their new year's resolutions so they don't want to eat cake or anything sugary. And the idea of having one more get together is unthinkable.
 
 It also means I get hit with a new year and a new age all at once. It causes a lot of self-reflection. The world is one year older and so am I. But I have to say, one nice thing that comes with age is you start to really figure yourself out. I know what makes me happy. I know what makes me stressed. I know my strengths and weaknesses, and am feeling more comfortable in my skin. It's nice. And it means birthdays aren't stressing me out as much as they used to.
 
