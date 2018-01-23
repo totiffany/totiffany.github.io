@@ -1,6 +1,10 @@
 ---
 published: true
 ---
+![Tiffany-Brian-Part-II-1@2x.jpg]({{site.baseurl}}/img/Tiffany-Brian-Part-II-1@2x.jpg)
+![Tiffany-Brian-Part-II-2@2x.jpg]({{site.baseurl}}/img/Tiffany-Brian-Part-II-2@2x.jpg)
+![Tiffany-Brian-Part-II-3@2x.jpg]({{site.baseurl}}/img/Tiffany-Brian-Part-II-3@2x.jpg)
+
 Since moving to San Francisco we get a lot of questions about what exactly we're doing out here. So to kick this blog off, and bring everyone up to date, I thought I'd answer a few of the most common questions we get about living in the city.
 
 While city life isn't for everyone, we love the life we've built here – Our San Francisco baby, our apartment, our jobs, and dinners with friends (who don't mind we can't stay out _too_ late anymore because bedtime is a thing now). Life is good! And we're trying to enjoy every second of it.
