@@ -18,7 +18,7 @@ I've been back at work now for four months, and I'm surprised to say, I actually
 
 That being said, it's not always easy. When things are slower at work it's tough for me to be there. I'd rather be at home with my baby. And with Brian and I both working again it's been difficult to keep up with the daily chores that go into running a home. The dishes pile up, the floor needs vacuumed, the trash needs taken out. Meal planning has essentially gone out the window. We've been eating a lot of takeout and deli sandwiches. Our time is definitely more limited.
 
-I'm not sure what the future holds for me as a working mom, but I've decided I always want to be doing _something_. We mamas need to take care of ourselves, and that means continuing to do things we enjoy after we have children – Whether that's a job, a hobby, or a class. That's part of the reason I started blogging again. Spending time doing something for myself gives me energy, and that helps me be a better mom.
+I'm not sure what the future holds for me as a working mom, but I've decided I always want to be doing _something_. We mamas need to take care of ourselves, and that means continuing to do things we enjoy after we have children. It could be anything – A job, a hobby, a class. That's part of the reason I started blogging again. Spending time doing something for myself gives me energy, and that helps me be a better mom. 
 
 Since becoming a mother I've realized this is something parents universally struggle with. We want to feel fulfilled and reach our own potential, but we also want to spend as much time as possible with our children. It's a tough balance!
 
