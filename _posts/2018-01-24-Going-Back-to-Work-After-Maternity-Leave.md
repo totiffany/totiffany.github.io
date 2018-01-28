@@ -5,7 +5,7 @@ published: true
 ![]({{site.baseurl}}/img/tiff-blog-4%402x.jpg)
 ![]({{site.baseurl}}/img/tiff-blog-5%402x.jpg)
 
-I feel fortunate to work for a company that offers a generous maternity leave. I was given 1 month off pre-baby and 5 months with baby. But despite the amount of time I had, as the end of leave approached I was having mixed feelings about going back to work. Was I really ready?
+I feel fortunate to work for a company that offers a generous maternity leave. I was given 1 month off pre-baby and 5 months with baby. But despite the amount of time I had, as the end of my leave approached I was having mixed feelings about going back to work. Was I really ready?
 
 Ultimately, I decided I'd never know if being a working mom was something I wanted to do unless I gave it a go, and I chose to go back to work full-time. I considered asking if I could switch to part-time, but that would mean losing a lot of the benefits my job offers. Plus, in my experience part-time actually means full-time work for part-time pay, which isn't what I wanted.
 
