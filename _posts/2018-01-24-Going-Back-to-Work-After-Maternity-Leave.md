@@ -1,6 +1,11 @@
 ---
 published: true
+thumbnail: tiff-blog-3@2x.jpg
+description: I feel fortunate to work for a company that offers a generous maternity leave. I was given 1 month off pre-baby and 5 months with baby. But despite the amount of time I had, as the end of my leave approached I was having mixed feelings about going back to work. Was I really ready?
 ---
+
+
+
 ![]({{site.baseurl}}/img/tiff-blog-3%402x.jpg)
 ![]({{site.baseurl}}/img/tiff-blog-4%402x.jpg)
 ![]({{site.baseurl}}/img/tiff-blog-5%402x.jpg)
