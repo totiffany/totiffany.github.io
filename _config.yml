@@ -7,10 +7,11 @@ github: [metadata]
 plugins:
     - jekyll-seo-tag
 title: Gem State of Mind
-description: I'm a basic white girl.
+description: Gem state girl loving life in the San Francisco Bay area.
 author: Tiffany Turley
 social:
   name: Tiffany Turley
   links:
     - https://www.instagram.com/totiffany
     - https://www.etsy.com/people/totiffanyann
+
