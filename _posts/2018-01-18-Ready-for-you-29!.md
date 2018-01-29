@@ -1,6 +1,6 @@
 ---
 published: true
-thumbnail: tiff-blog-23@2x.jpg
+image: tiff-blog-23@2x.jpg
 description: Historically, I've had a bit of a hard time with my birthday. It's January 3rd – The day you usually go back to work and school after a nice holiday break, so everyone is in a bad mood. It's a little too close to Christmas to remember to get another gift. Everyone just started their new year's resolutions so they don't want to eat cake or anything sugary. And the idea of having one more get together is unthinkable.
 ---
 

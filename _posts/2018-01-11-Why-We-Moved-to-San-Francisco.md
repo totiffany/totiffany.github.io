@@ -1,6 +1,6 @@
 ---
 published: true
-thumbnail: Tiffany-Brian-Part-II-4@2x.jpg
+image: Tiffany-Brian-Part-II-4@2x.jpg
 description: Since moving to San Francisco we get a lot of questions about what exactly we're doing out here. So to kick this blog off, and bring everyone up to date, I thought I'd answer a few of the most common questions we get about living in the city.
 ---
 

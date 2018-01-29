@@ -1,4 +1,16 @@
-name: Tiffsite
+name: Gem State of Mind
 markdown: kramdown
 permalink: /:title
 github: [metadata]
+
+# jekyll-seo-tag plugin stuff
+plugins:
+    - jekyll-seo-tag
+title: Gem State of Mind
+description: I'm a basic white girl.
+author: Tiffany Turley
+social:
+  name: Tiffany Turley
+  links:
+    - https://www.instagram.com/totiffany
+    - https://www.etsy.com/people/totiffanyann

@@ -11,14 +11,13 @@ layout: default
 		<div class="date">{{ post.date | date_to_string }}</div> 
 		<h2><a href="{{ post.url }}" title="{{ post.title }}">{{ post.title }}</a></h2>
 
-		{% if post.thumbnail %} 
-		<a href="{{ post.url }}" ><img src="{{site.baseurl}}/img/{{ post.thumbnail }}" /></a>
+		{% if post.image %} 
+		<a href="{{ post.url }}" ><img src="{{site.baseurl}}/img/{{ post.image }}" /></a>
 		{% endif %}
 		<p>
 		{{ post.description}}	
 		</p>
 		<a href="{{ post.url }}" title="{{ post.title }}">Read more</a>
-
 		
 	</li>
 	{% endfor %}
