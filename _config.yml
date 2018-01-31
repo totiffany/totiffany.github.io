@@ -1,4 +1,4 @@
-name: Gem State of Mind
+name: Red Letter Day
 markdown: kramdown
 permalink: /:title
 github: [metadata]
@@ -6,7 +6,7 @@ github: [metadata]
 # jekyll-seo-tag plugin stuff
 plugins:
     - jekyll-seo-tag
-title: Gem State of Mind
+title: Red Letter Day
 description: A San Francisco based personal blog about city living, motherhood, and real life. Hi there, I’m Tiffany. An Idaho girl living in the heart of San Francisco with my husband and baby. I believe in living life simply and mindfully. I’ve always loved to write. And I hope you like to read. 
 author: Tiffany Turley
 social:
