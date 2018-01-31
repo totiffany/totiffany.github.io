@@ -7,11 +7,10 @@ github: [metadata]
 plugins:
     - jekyll-seo-tag
 title: Gem State of Mind
-description: Gem state girl loving life in the San Francisco Bay area.
+description: A San Francisco based personal blog about city living, motherhood, and real life. Hi there, I’m Tiffany. A small town Idaho girl living in the heart of San Francisco with my husband and baby. I believe in living life simply and mindfully. I’ve always loved to write. And I hope you like to read. 
 author: Tiffany Turley
 social:
   name: Tiffany Turley
   links:
     - https://www.instagram.com/totiffany
     - https://www.etsy.com/people/totiffanyann
-
