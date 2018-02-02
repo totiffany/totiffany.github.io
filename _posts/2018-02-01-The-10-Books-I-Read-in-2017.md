@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 I read exactly 10 books in 2017. It was actually the first year I started keeping track. My gut tells me I usually read more, but it was tough to keep up with it after Hazel was born. And since holding a book and a baby at the same time wasn't really an option, I turned to audiobooks. I'm not sure what took me so long. Listening to a book is a multitasking superpower.
 
