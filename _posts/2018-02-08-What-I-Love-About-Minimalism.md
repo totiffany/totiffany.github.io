@@ -16,7 +16,7 @@ So began my decluttering process. That extra set of measuring cups? Gone. The dr
 
 I've studied minimalism quite a bit since then, and it turns out, it's not just about stuff. While minimalism is tough to define I like [this elevator pitch](https://www.theminimalists.com/pitch/) best, "Minimalism is a lifestyle that helps people question what things add value to their lives."
 
-When we think of the minimalism movement we tend to think of really extreme lifestyles where people only own 5 shirts and 2 pairs of shoes. But for me, that's too extreme. While I love a good, curated closet, minimalism is going to look different depending on who you are and what's important to you. Giving away a bunch of your stuff doesn't necessarily make you a minimalist. Reassessing your priorities, and making more room for the things, people, and activities that add joy to your life does.
+When we think of the minimalism movement we tend to think of really extreme lifestyles where people only own 5 shirts, 2 pants, and 1 pair of shoes. But for me, that's too extreme. While I love a good, curated closet, minimalism is going to look different depending on who you are and what's important to you. Giving away a bunch of your stuff doesn't necessarily make you a minimalist. Reassessing your priorities, and making more room for the things, people, and activities that add joy to your life does.
 
 For me, this is an ongoing process. I enjoy books and shoes and skincare, and my possessions reflect that. But I love the idea of collecting items that truly have value and meaning to you. No more impulse buys. I want to love what I own and make purchases I intend to keep for a long time.
 
