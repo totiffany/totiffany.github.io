@@ -5,7 +5,7 @@ description: >-
   to San Francisco all we could afford was a studio apartment. We sold most of
   our furniture before the move but still struggled to squeeze all of our stuff
   into that tiny place. Furniture wise there was enough room for a bed and two
-  sitting chairs.
+  sitting chairs. That was it.
 image: img_posts/Plant2.jpg
 ---
 ![Plant2.jpg]({{site.baseurl}}/img_posts/Plant2.jpg)
