@@ -10,6 +10,7 @@ description: >-
   somewhere around that time I saw [this Ted
   Talk](https://www.ted.com/talks/graham_hill_less_stuff_more_happiness) and
   felt inspired. We don't need stuff! Ged rid of all the things!
+image: img_posts/Plant2.jpg
 ---
 ![Plant2.jpg]({{site.baseurl}}/img_posts/Plant2.jpg)
 
