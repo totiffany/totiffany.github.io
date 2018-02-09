@@ -1,7 +1,11 @@
 ---
 published: true
 image: Tiffany-Brian-Part-II-4@2x.jpg
-description: Since moving to San Francisco we get a lot of questions about what exactly we're doing out here. So to kick this blog off, and bring everyone up to date, I thought I'd answer a few of the most common questions we get about living in the city.
+description: >-
+  Since moving to San Francisco we get a lot of questions about what exactly
+  we're doing out here. So to kick this blog off, and bring everyone up to date,
+  I thought I'd answer a few of the most common questions we get about living in
+  the city.
 ---
 
 ![Tiffany-Brian-Part-II-4@2x.jpg]({{site.baseurl}}/img/Tiffany-Brian-Part-II-4@2x.jpg)
@@ -16,7 +20,7 @@ While city life isn't for everyone, we love the life we've built here – Our Sa
 
 **Why did you move to San Francisco?** The short answer is, we wanted to. We knew the best thing for Brian’s career would be to do the city thing for a while. So for us that meant San Francisco, LA, or New York. We liked the weather in San Francisco and the proximity to our families in Idaho, so we decided to live here. It helped that my job also has an office in the city I was able to transfer to from Utah.
 
-**What are you doing there?** Brian works as a product designer at [Nerd Wallet](https://www.nerdwallet.com/), designing screens for their website and mobile app. I just went back to work after a nice maternity leave with Adobe. I help create content for [Adobe's blog](https://theblog.adobe.com/).
+**What are you doing there?** Brian works as a product designer at [Nerd Wallet](https://www.nerdwallet.com/), designing screens for their website and mobile app. I went back to work in October after a nice maternity leave with Adobe. I help create content for [Adobe's blog](https://theblog.adobe.com/).
 
 **How long have you been living there?** Three years. Time flies.
 
