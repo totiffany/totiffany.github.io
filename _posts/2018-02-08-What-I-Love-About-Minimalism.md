@@ -8,7 +8,7 @@ description: >-
   sitting chairs. That was it.
 image: Plant@2x.jpg
 ---
-![Plant@2x.jpg]({{site.baseurl}}/img_posts/Plant@2x.jpg)
+![Plant@2x.jpg]({{site.baseurl}}/img/Plant@2x.jpg)
 
 I discovered minimalism a few years ago almost out of necessity. When we moved to San Francisco all we could afford was a studio apartment. We sold most of our furniture before the move but still struggled to squeeze all of our stuff into that tiny place. Furniture wise there was enough room for a bed and two sitting chairs. That was it. We had a good closet by the front door, which helped, and I went to work organizing our belongings as best I could. It was somewhere around that time I saw [this Ted Talk](https://www.ted.com/talks/graham_hill_less_stuff_more_happiness) and felt inspired. We don't need stuff! Ged rid of all the things!
 
