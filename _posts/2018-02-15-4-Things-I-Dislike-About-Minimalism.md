@@ -10,7 +10,7 @@ description: >-
 ---
 What's not to like about minimalism? To be clear, I think there's a difference between [the heart of minimalism](http://redletterdayblog.com/What-I-Love-About-Minimalism) and the kind of minimalism we're seeing on Pinterest and Instagram. The things I dislike about minimalism have to do more with what I'd call "aesthetic minimalism," which is, in a word, trendy.
 
-You can see examples of aesthetic minimalism everywhere – We're flooded with images of beautifully styled homes, devoid of any color, white drenched instagram photos, and wardrobes consisting only of black, white, and cognac. If having a completely nuetral wardrobe make you happy, you should do what works for you, but don't do it just because that's what's in style. Surround yourself with things that bring _you_ joy. If you like books, it's ok to have a book shelf full of them. If you love shoes, you don't need to parse down your shoe collection. And for heaven's sake, if you love color, don't feel a need to completely overhaul your home decor. 
+You can see examples of aesthetic minimalism everywhere – Images of beautifully styled homes devoid of any color, white drenched instagram photos, and wardrobes consisting only of black, white, and beige. If having a completely nuetral wardrobe make you happy, you should do what works for you, but don't do it just because that's what's in style. Surround yourself with things that bring _you_ joy. If you like books, it's ok to have a book shelf full of them. If you love shoes, you don't need to parse down your shoe collection. And for heaven's sake, if you love color, don't completely overhaul your home decor. 
 
 Here are a few other things I take issue with when it comes to minimalism.
 
