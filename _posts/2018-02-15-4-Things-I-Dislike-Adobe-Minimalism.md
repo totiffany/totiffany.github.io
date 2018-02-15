@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 What's not to like about minimalism? To be clear, I think there's a difference between the heart of minimalism, [which I wrote about last week](http://redletterdayblog.com/What-I-Love-About-Minimalism), and the kind of minimalism we're seeing on Pinterest and Instagram. The things I dislike about minimalism have to do more with what I'd call "aesthetic minimalism," which is, in a word, trendy.
 
@@ -15,6 +15,4 @@ Here are a few other things I take issue with when it comes to minimalism.
 
 **All of our donations are creating waste.** This is a complicated issue I will likely write a whole other post about, but for now I'll keep it simple. While donating our extra stuff to thrift shops may seem like the charitable thing to do, we're actually contributing to a massive pollution problem. We are purchasing and donating clothes so often now thrift shops cannot possibly keep up. And when thrift shops can no longer store all of our donated clothing they ship them overseas. Sounds ok so far, right? Well, it turns out the countries we ship to can't keep up with the mass of donations either! As a result, a lot of our clothes are [ending up in landfills or incinerated](https://www.huffingtonpost.com/2014/11/20/fast-fashion-thrift-stores_n_5798612.html). The best way to combat this is to buy fewer, high-quality items that will last longer and that we intend to keep for a long time. **Fewer purchases means less waste later on.**
 
-So there you have it. Do you agree that there's a bit of a dark side to minimalism? Has trying to conform to minimalism actually made you spend more? Let's talk about it. 
-
-
+So there you have it. Do you agree that there's a bit of a dark side to minimalism? Has trying to conform to minimalism actually made you spend more? Let's talk about it.
