@@ -1,7 +1,7 @@
 ---
 published: true
-description: What's not to like about minimalism? To be clear, I think there's a difference
-between the heart of minimalism and the kind of minimalism we're seeing on Pinterest and Instagram. The things I dislike about minimalism have to do more with what I'd call "aesthetic minimalism," which is, in a word, trendy.
+description: >-
+  What's not to like about minimalism? To be clear, I think there's a difference between the heart of minimalism and the kind of minimalism we're seeing on Pinterest and Instagram. The things I dislike about minimalism have to do more with what I'd call "aesthetic minimalism."
 ---
 What's not to like about minimalism? To be clear, I think there's a difference between [the heart of minimalism](http://redletterdayblog.com/What-I-Love-About-Minimalism) and the kind of minimalism we're seeing on Pinterest and Instagram. The things I dislike about minimalism have to do more with what I'd call "aesthetic minimalism," which is, in a word, trendy.
 
