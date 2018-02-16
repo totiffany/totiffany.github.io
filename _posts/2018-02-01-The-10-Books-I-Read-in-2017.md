@@ -1,12 +1,10 @@
 ---
 published: true
-description: >-
-  I read exactly 10 books in 2017. It was actually the first year I started
-  keeping track. My gut tells me I usually read more, but it was tough to keep
-  up with it after Hazel was born. And since holding a book and a baby at the
-  same time wasn't really an option, I turned to audiobooks. I'm not sure what
-  took me so long. Listening to a book is a multitasking superpower.
+image: redletterdayblog-reading-1.jpg
+description: I read exactly 10 books in 2017. It was actually the first year I started keeping track. My gut tells me I usually read more, but it was tough to keep up with it after Hazel was born. And since holding a book and a baby at the same time wasn't really an option, I turned to audiobooks. I'm not sure what took me so long. Listening to a book is a multitasking superpower.
 ---
+![]({{site.baseurl}}/img/redletterdayblog-reading-1.jpg)
+
 I read exactly 10 books in 2017. It was actually the first year I started keeping track. My gut tells me I usually read more, but it was tough to keep up with it after Hazel was born. And since holding a book and a baby at the same time wasn't really an option, I turned to audiobooks. I'm not sure what took me so long. Listening to a book is a multitasking superpower.
 
 I use the Overdrive app to listen to audiobooks and can't recommend it enough. Overdrive lets you borrow audiobooks for free through the library. The only catch is the selection is limited to your local library, and sometimes you have to wait for someone to "return" an audiobook before you can check it out. But if you can have a little patience, it's worth it.
