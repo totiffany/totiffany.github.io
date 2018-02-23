@@ -19,7 +19,7 @@ I didn't expect much to happen with it, but in the year since I opened my shop I
 
 In the spirit of that I'm still trying out new things. I recently created a macrame wall hanging and loved the creative process that went into that. If all goes well I'll add some macrame pieces to my shop as well. 
 
-What about you? I'd love to hear about the creative hobby to turn to when you find yourself in a rut. 
+What about you? Have you ever been afraid to try something you secretly wanted to do? What creative hobby do you turn to when you find yourself in a rut?  I'd love to hear about it. 
 
 
 
