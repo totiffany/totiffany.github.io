@@ -5,7 +5,7 @@ published: false
 ![tiff-blog-3-1.jpg]({{site.baseurl}}/img/Plant@2x.jpg)
 ![tiff-blog-1-1.jpg]({{site.baseurl}}/img/Plant@2x.jpg)
 
-A couple years ago I found myself in a rut. I wasn’t progressing the way I wanted to in my personal or professional life, and was just feeling stuck. I decided what I needed to pull myself out of it was a creative hobby. Aside from reading and trying out every bakery in San Francisco, I didn't have a lot of hobbies. I wanted something I could get excited about outside of work. 
+A couple years ago I found myself in a rut. I wasn’t progressing the way I wanted to in my personal or professional life, and was just feeling stuck. I decided what I needed was a creative hobby. Aside from reading and trying out every bakery in San Francisco, I didn't have a lot of hobbies. I wanted something I could get excited about outside of work. 
 
 First I turned to [adult coloring books](https://www.amazon.com/gp/product/1945710799/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=redletterda04-20&creative=9325&linkCode=as2&creativeASIN=1945710799&linkId=3ac6311301303911d1a6c0eeb586f928), which have found recent popularity and are known to reduce stress, but it didn’t stick. I really enjoyed coloring and drawing as a kid, so I thought this would be a natural fit, but something about the intricate patterns of adult coloring books frustrated me. I didn’t have the patience for it. 
 
