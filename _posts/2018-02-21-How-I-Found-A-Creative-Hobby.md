@@ -1,9 +1,9 @@
 ---
 published: false
 ---
-![tiff-blog-2-1.jpg]({{site.baseurl}}/img/Plant@2x.jpg)
-![tiff-blog-3-1.jpg]({{site.baseurl}}/img/Plant@2x.jpg)
-![tiff-blog-1-1.jpg]({{site.baseurl}}/img/Plant@2x.jpg)
+[tiff-blog-2-1.jpg]
+[tiff-blog-3-1.jpg]
+[tiff-blog-1-1.jpg]
 
 A couple years ago I found myself in a rut. I wasn’t progressing the way I wanted to in my personal or professional life, and was just feeling stuck. I decided what I needed was a creative hobby. Aside from reading and trying every bakery in San Francisco, I realized I didn't have a lot of hobbies. I wanted something I could get excited about outside of work. 
 
