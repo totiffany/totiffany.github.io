@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 [tiff-blog-2-1.jpg]
 [tiff-blog-3-1.jpg]
