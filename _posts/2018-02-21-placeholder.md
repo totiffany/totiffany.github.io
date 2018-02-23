@@ -15,8 +15,11 @@ Finally I decided to take a jewelry making class. I went by myself, which is som
 
 So using what I’d learned about a year ago I decided to take it one step further and open my own Etsy shop! It's called [Gem State Co](https://www.etsy.com/shop/GemStateCo/). and I sell sliced geode and druzy necklaces. Learning the ins and outs of Etsy has been a hobby in itself. Ordering materials, creating the product, photographing, editing, and creating listings is a ton of work, but I’ve really enjoyed it all. 
 
-I didn't expect much to happen with it, but in the year since I opened my shop I've managed to sell out of nearly every necklace. The whole experience has taught me I need to stop being afraid to try new things! Life is too short to worry that I won't be good enough at something to not give it a shot. And the best way to learn is by just diving in and figuring things out along the way. 
+I didn't expect much to happen with it, but in the year since I opened my shop I've managed to sell out of nearly every necklace! The whole experience has taught me I need to stop being afraid to try new things. Life is too short to worry that I won't be good enough at something to not give it a shot. And the best way to learn is by just diving in and figuring things out along the way. 
 
-So in the spirit of that I'm still trying out new things. I recently bought the materials for and created a macrame wall hanging and might add a few of those to the shop as well. 
+In the spirit of that I'm still trying out new things. I recently created a macrame wall hanging and loved the creative process that went into that. If all goes well I'll add some macrame pieces to my shop as well. 
+
+What about you? I'd love to hear about the creative hobby to turn to when you find yourself in a rut. 
+
 
 
