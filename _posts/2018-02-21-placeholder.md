@@ -13,7 +13,7 @@ Then I tried cross-stitch, which despite also requiring a lot of patience, I act
 
 Finally I decided to take a [jewelry making class](http://www.workshopsf.org/). I went by myself, which is something I would never normally do, but I was really committed to finding a hobby! The class focused on natural gemstone jewelry and wire wrapping and made me remember how much I loved natural stones and geodes growing up. They’re a regular feature in the gift shops of Yellowstone National Park and Jackson Hole, Wyoming near where I’m from. 
 
-Inspired by the class I decided to take it one step further and open my own Etsy shop! It's called [Gem State Co](https://www.etsy.com/shop/GemStateCo/). and I sell sliced geode and druzy necklaces. Learning the ins and outs of Etsy has been a hobby in itself. Curating and ordering materials, creating the product, photographing, editing, and creating listings is a ton of work, but I’ve really enjoyed the entire process. 
+Inspired by the class I decided to take it one step further and open my own Etsy shop! It's called [Gem State Co](https://www.etsy.com/shop/GemStateCo/). and I sell sliced geode and druzy necklaces. Learning the ins and outs of Etsy has been a hobby in itself. Curating and ordering materials, creating the product, photographing, editing, and creating listings is a ton of work, but I’ve really enjoyed the process. 
 
 I didn't expect much to happen with it, but in the year since I opened my shop I've managed to sell out of nearly every necklace! The whole experience has taught me I need to stop being afraid to try new things. Life is too short to worry that I won't be good enough at something to not give it a shot. And the best way to learn is by just diving in and figuring things out along the way. 
 
