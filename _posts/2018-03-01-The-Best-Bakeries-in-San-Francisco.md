@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 
 **b. patisserie** 
@@ -16,6 +16,3 @@ Bob's is a hole-in-the-wall donut shop that's open 24 hours a day. I'll be hones
 
 **Tartine**
 I have to include Tartine on the list because it is one of the most well-known bakeries in San Francisco, but personally, I prefer b. patisserie or Arsicault.  If you really want to go their morning bun is out-of-this-world good and their sourdough really is delicious.
-
-
-
