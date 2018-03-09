@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 
 For the most part, Brian and I aren't big spenders. We may live in an expensive city, but we do our best to keep our expenses as low as we can. We've chosen to live in a less-fancy neighborhood to save a bit on rent every month. And we don't have a car, which means we don't have to worry about monthly payments or parking fees. But despite our budget-conscious attitude, there are a few things we've splurged on that I have no regrets about buying.
@@ -14,6 +14,3 @@ After we moved to the city I decided our college days were behind us, and it was
 
 **Travel**
 Brian and I aren't big travelers, but we do try to plan a few fun trips every year. Usually, our trips revolve around seeing family. We always take annual trips to Idaho for the fourth of July and Christmas to see our parents. Last year we also made a visit to see family in Texas and just recently got back from a beach-side vacation with friends in Cabo. We do our best to find decent deals on flights and hotels when we travel. It's still expensive, but in my mind setting aside some funds for trips always pays off. It's worth the extra dollars to have some time to relax and be with the ones you love.
-
-
-
