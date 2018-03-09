@@ -10,7 +10,7 @@ image: holmes.jpg
 ---
 ![holmes.jpg]({{site.baseurl}}/img/holmes.jpg)
 
-San Franciscans love their food, and bakeries are no exception. After we moved here I was thrilled to discover the variety of bakery options available. I truly believe a perfectly flaky, buttery pastry can be life-changing. Now anytime someone comes to visit us we take them to at least one of our favorite bakeries, and now I'm sharing the goodness with all of you! 
+San Franciscans love their food, and bakeries are no exception. After we moved here I was thrilled to discover the variety of bakery options available. I truly believe a perfectly flaky, buttery pastry can be life-changing. Anytime someone comes to visit us we take them to at least one of our favorite bakeries, and now I'm sharing the goodness with all of you! 
 
 **b. patisserie** 
 My absolute favorite bakery in the city. Everything here is delicious, but the best thing on the menu is the traditional kouign aman. It's unassuming compared alongside the other pastries, but it's simply the best. The chocolate banana almond croissant is also wonderful and their hot chocolate comes in a cup the size of a small bowl.  
