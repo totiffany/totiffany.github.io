@@ -7,6 +7,8 @@ description: >-
   anytime someone comes to visit us we take them to at least one of our favorite
   bakeries, and now I'm sharing the goodness with all of you!
 ---
+![holmes.jpg]({{site.baseurl}}/img/holmes.jpg)
+
 San Franciscans love their food, and bakeries are no exception. After we moved here I was thrilled to discover the variety of bakery options available. I truly believe a perfectly flaky, buttery pastry can be life-changing. Now anytime someone comes to visit us we take them to at least one of our favorite bakeries, and now I'm sharing the goodness with all of you! 
 
 **b. patisserie** 
