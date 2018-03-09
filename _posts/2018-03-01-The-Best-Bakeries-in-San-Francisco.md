@@ -6,6 +6,7 @@ description: >-
   truly believe a perfectly flaky, buttery pastry can be life-changing. Now
   anytime someone comes to visit us we take them to at least one of our favorite
   bakeries, and now I'm sharing the goodness with all of you!
+image: holmes.jpg
 ---
 ![holmes.jpg]({{site.baseurl}}/img/holmes.jpg)
 
