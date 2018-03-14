@@ -9,7 +9,7 @@ description: >-
   there are a few things we've splurged on that I have no regrets about buying.
 image: Edit.jpg
 ---
-![Edit.jpg]({{site.baseurl}}/_posts/Edit.jpg)
+![Edit.jpg]({{site.baseurl}}/img/Edit.jpg)
 
 For the most part, Brian and I aren't big spenders. We may live in an expensive city, but we do our best to keep our expenses as low as we can. We've chosen to live in a less-fancy neighborhood to save a bit on rent every month. And we don't have a car, which means we don't have to worry about monthly payments or parking fees. But despite our budget-conscious attitude, there are a few things we've splurged on that I have no regrets about buying.
 
