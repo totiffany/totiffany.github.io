@@ -28,7 +28,7 @@ While city life isn't for everyone, we love the life we've built here – Our Sa
 
 **Where do you live in the city?** Right in the heart of it. Lower Nob Hill if you’re familiar with the neighborhoods. In considering where we wanted to be in our latest move we looked at apartments all over the city and the east bay, but ultimately decided we like our current neighborhood best. It's fairly close to work for both of us which keeps our commutes short.
 
-**How big is your apartment?** We recently moved from a studio to a one bedroom apartment. We found it a couple months before Hazel was born and were so happy to find a bigger place just in time for her arrival. By San Francisco standards it’s pretty spacious with a few good closets (a luxury!), but by Idaho and Utah standards, where were from, it’s small. Our old studio apartment in the city was tiny – Only 311 square feet – so we’re easy to please!
+**How big is your apartment?** We recently moved from a studio to a one bedroom apartment. We found it a couple months before Hazel was born and were so happy to find a bigger place just in time for her arrival. By San Francisco standards it’s pretty spacious with a few good closets (a luxury!), but by Idaho and Utah standards, where were from, it’s small. Our old studio apartment was tiny – Only 311 square feet – so we’re easy to please!
 
 **But where does the baby sleep in a one bedroom apartment?** She recently moved from a bassinet in our room to a mini crib in a closet. That’s pretty standard for the city. Thankfully babies don't need a lot of room.
 
