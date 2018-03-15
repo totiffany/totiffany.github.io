@@ -7,7 +7,7 @@ description: >-
   notes, in the calendar on my phone. It's never been very efficient.
 ---
 
-My coworkers were the first to tell me about bullet journaling. Over lunch they explained that it was a journal and planner all in one, and "whatever you want it to be." It seemed too vague and complicated to appeal to me, so I wasn't convinced until I watched [this video](http://bulletjournal.com) by the creator of the bullet journal system. 
+My coworkers were the first to tell me about bullet journaling. Over lunch they explained that it was a journal and planner all-in-one, and "whatever you want it to be." It seemed too vague and complicated to appeal to me, so I wasn't convinced until I watched [this video](http://bulletjournal.com) by the creator of the bullet journal system. 
 
 I've tried a variety of digital options when it comes to my to-do lists, but have realized I'm forever a pen and paper kind of girl. I tend to keep track of things everywhere though – On a spare notepad, sticky notes, the calendar app on my phone. I liked the idea of condensing all that into one notebook and figured I could give bullet journaling a try. 
 
