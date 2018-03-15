@@ -9,11 +9,11 @@ description: >-
 
 My coworkers were the first to tell me about bullet journaling. Over lunch they explained that it's a journal and planner all in one, and "whatever you want it to be." It seemed too vague and complicated to appeal to me, so I wasn't convinced until I watched [this video](http://bulletjournal.com) by the creator of the bullet journal system. 
 
-I've tried a variety of digital options when it comes to my to-do lists, but have realized I'm forever a pen and paper kind of girl. I tend to keep track of things everywhere though – In a spare notebook, on sticky notes, in the calendar on my phone. I liked the idea of condensing all that into one place and figured I could give the bullet journal a try. 
+I've tried a variety of digital options when it comes to my to-do lists, but have realized I'm forever a pen and paper kind of girl. I tend to keep track of things everywhere though – In a spare notebook, on sticky notes, in the calendar on my phone. I liked the idea of condensing all that into one place and figured I could give bullet journaling a try. 
 
-It only took about 30 minutes to get it all set up, and once I did I filled it in with everything I could think of – birthdays, appointments, my to-do list. Sure enough, it felt great to have it all in one spot. I've been using mine for just over a year now, and I've gotta say, _it works_. 
+The bullet journal is described as "an analogue system for a digital age," and it's not nearly as complicated as it sounds. It only took about 30 minutes to get my notebook all set up and ready to go. I filled it in with anything I could think of – birthdays, appointments, my to-do list. Sure enough, it feels great to have it all in one place. I've been using mine for just over a year now, and I've gotta say, _it works_. 
 
-For those of you who are new to bullet journaling here are a few tips I've picked up that might help you get started. This is honestly what keeps me organized and sane. 
+For those of you who are new to the bullet journal here are a few tips I've picked up that might help you get started. This thing is honestly what keeps me organized and sane. 
 
 **Learn the basics.**
 There's no way I can explain bullet journaling as well as the creator does in [this video](http://bulletjournal.com), so I highly recommend watching it first. He explains the original system for setting up your bullet journal and the meaning behind all those fancy words like "future log" and "migration." I had to watch it a couple times before everything clicked, but once I saw the wisdom in it I was sold. 
