@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 description: >-
   I've tried a variety of digital options when it comes to keeping track of my
   to-do lists, but have realized I'm forever a pen and paper kind of gal. But I
