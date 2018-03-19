@@ -28,7 +28,7 @@ While city life isn't for everyone, we love the life we've built here – Our Sa
 
 **Where do you live in the city?** Right in the heart of it. Lower Nob Hill if you’re familiar with the neighborhoods. In considering where we wanted to be in our latest move we looked at apartments all over the city and the east bay, but ultimately decided we like our current neighborhood best. It's fairly close to work for both of us which keeps our commutes short.
 
-**How big is your apartment?** We recently moved from a studio to a one bedroom apartment. We found it a couple months before Hazel was born and were so happy to find a bigger place just in time for her arrival. By San Francisco standards it’s pretty spacious with a few good closets (a luxury!), but by Idaho and Utah standards, where were from, it’s small. Our old studio apartment in the city was tiny – Only 311 square feet – so we’re easy to please!
+**How big is your apartment?** We recently moved from a studio to a one bedroom apartment. We found it a couple months before Hazel was born and were so happy to find a bigger place just in time for her arrival. By San Francisco standards it’s pretty spacious with a few good closets (a luxury!), but by Idaho and Utah standards, where were from, it’s small. Our old studio apartment was tiny – Only 311 square feet – so we’re easy to please!
 
 **But where does the baby sleep in a one bedroom apartment?** She recently moved from a bassinet in our room to a mini crib in a closet. That’s pretty standard for the city. Thankfully babies don't need a lot of room.
 
@@ -36,6 +36,6 @@ While city life isn't for everyone, we love the life we've built here – Our Sa
 
 **How does grocery shopping work?** We do a mix of carrying our groceries home and getting them delivered to us. [Stroller hooks](https://www.amazon.com/Think-King-Stroller-Wheelchair-Rollator/dp/B002MXP3SM/ref=sr_1_7_s_it?s=baby-products&ie=UTF8&qid=1514784564&sr=1-7&keywords=stroller+hooks) have been a game changer. There is a Trader Joes just up the hill we use for most of our essentials and produce. For everything else we use a grocery delivery service. It's especially handy for heavy items like milk and flour.
 
-**Isn’t it expensive to live there?** Yes! It’s ridiculously expensive. I read an article somewhere that said it’s the most expensive place to live in the U.S. right now. Fortunately we both work in tech and can (somewhat) afford it, but it still hurts to see that money disappear from our bank account each month.
+**Isn’t it expensive to live there?** Yes! It’s ridiculously expensive. [San Franciscos is the most expensive place to live in the U.S. right now](http://time.com/money/4287132/most-expensive-cities-to-rent/). Fortunately we both work in tech and can make it work, but it still hurts to see that money disappear from our bank account each month.
 
 **Do you like living there?** We do! We think cities are really fun and have fallen in love with this one. There are pros and cons to city living, but for now we’re enjoying the adventure. In our experience you can never run out of things to do here. The food is amazing, the museums are fantastic, and we've made some awesome friends. Whenever we cross over the Bay Bridge coming into the city I love seeing the skyline and the bay. It feels like home.

@@ -1,8 +1,14 @@
 ---
 published: true
 description: >-
-  What's not to like about minimalism? To be clear, I think there's a difference between the heart of minimalism and the kind of minimalism we're seeing on Pinterest and Instagram. The things I dislike about minimalism have to do more with what I'd call "aesthetic minimalism."
+  What's not to like about minimalism? To be clear, I think there's a difference
+  between the heart of minimalism and the kind of minimalism we're seeing on
+  Pinterest and Instagram. The things I dislike about minimalism have to do more
+  with what I'd call "aesthetic minimalism."
+image: Tiffany-Turley-Closet.JPG
 ---
+![Tiffany-Turley-Closet.JPG]({{site.baseurl}}/img/Tiffany-Turley-Closet.JPG)
+
 What's not to like about minimalism? To be clear, I think there's a difference between [the heart of minimalism](http://redletterdayblog.com/What-I-Love-About-Minimalism) and the kind of minimalism we're seeing on Pinterest and Instagram. The things I dislike about minimalism have to do more with what I'd call "aesthetic minimalism," which is, in a word, trendy.
 
 You can see examples of aesthetic minimalism everywhere – Images of beautifully styled homes devoid of any color, white drenched instagram photos, and wardrobes consisting only of black, white, and beige. If having a completely nuetral wardrobe make you happy, you should do what works for you, but don't do it just because that's what's in style. Surround yourself with things that bring _you_ joy. If you like books, it's ok to have a book shelf full of them. If you love shoes, you don't need to parse down your shoe collection. And for heaven's sake, if you love color, don't completely overhaul your home decor. 
@@ -15,6 +21,6 @@ Here are a few other things I take issue with when it comes to minimalism.
 
 **It's just another way to sell us stuff.** Again, there is a difference between true minimalism and aesthetic minimalism, but the minimalist look is in style. Items are being labeled as "minimalist" in advertising to appeal to our desire for order. You can see it in clothing, beauty products, and home goods. Bright and colorful is out. Neutral and minimalist is in. While I'm all for a well-designed product, you shouldn't purchase something just because it appeals to your desire to be a minimalist. Make sure your purchases are high-quality items you actually want, and not just because they come in a pretty package.
 
-**All of our donations are creating waste.** This is a complicated issue I will likely write a whole other post about, but for now I'll keep it simple. While donating our extra stuff to thrift shops may seem like the charitable thing to do, we're actually contributing to a massive pollution problem. We are purchasing and donating clothes so often now thrift shops cannot possibly keep up. And when thrift shops can no longer store all of our donated clothing they ship them overseas. Sounds ok so far, right? Well, it turns out the countries we ship to can't keep up with the mass of donations either! As a result, a lot of our clothes are [ending up in landfills or incinerated](https://www.huffingtonpost.com/2014/11/20/fast-fashion-thrift-stores_n_5798612.html). The best way to combat this is to buy fewer, high-quality items that will last longer and that we intend to keep for a long time. **Fewer purchases means less waste later on.**
+**All of our donations are creating waste.** This is a complicated issue I could write a whole other post about, but for now I'll keep it simple. While donating our extra stuff to thrift shops may seem like the charitable thing to do, we're actually contributing to a massive pollution problem. We are purchasing and donating clothes so often now thrift shops cannot possibly keep up. And when thrift shops can no longer store all of our donated clothing they ship them overseas. Sounds ok so far, right? Well, it turns out the countries we ship to can't keep up with the mass of donations either! As a result, a lot of our clothes are [ending up in landfills or incinerated](https://www.huffingtonpost.com/2014/11/20/fast-fashion-thrift-stores_n_5798612.html). The best way to combat this is to buy fewer, high-quality items that will last longer and that we intend to keep for a long time. **Fewer purchases means less waste later on.**
 
 So there you have it. Do you agree that there's a bit of a dark side to minimalism? Has trying to conform to minimalism actually made you spend more? Let's talk about it.
