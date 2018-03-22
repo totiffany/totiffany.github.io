@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 
 ![tiff-blog-16.jpg]({{site.baseurl}}/img/tiff-blog-16.jpg)
@@ -15,4 +15,4 @@ I loved the minimalist approach to tackling your closet. But after attempting a 
 
 **I have yet to see someone tackle capsule wardrobes for pregnancy.** My wardrobe during pregnancy was a hodge-podge of clothes I already owned that I could squeeze into plus a handful of maternity items I purchased. It was a mess, but that's just how it was. You wear what fits. And don't even get me started on post-partum. I remember walking into my closet a few days after Hazel was born and staring at my clothes for a good 5 minutes wondering what on earth I could actually wear. It had to be comfortable, loose, and nursing friendly. Not even my favorite pair of jeans were going to work! As a new mother, your body is constantly changing, and I liked keeping all my clothes available to choose from. If you find a creative way to tackle this one please share! 
 
-For me, the big takeaway with attempting a capsule wardrobe was to create a wardrobe that is small and full of pieces I love and actually wear. Interestingly, Un-Fancy herself [doesn't stick to a strict capsule anymore either](http://www.un-fancy.com/about/). The rules and numbers weren't for me, but attempting it did help me give a lot more thought to my clothing purchases.  I can be happy with a lot less. And I feel much happier with my closet. 
+For me, the big takeaway with attempting a capsule wardrobe was to create a wardrobe that is small and full of pieces I love and actually wear. Interestingly, Un-Fancy herself [doesn't stick to a strict capsule anymore either](http://www.un-fancy.com/about/). The rules and numbers weren't for me, but attempting it did help me give a lot more thought to my clothing purchases.  I can be happy with a lot less. And I feel much happier with my closet.
