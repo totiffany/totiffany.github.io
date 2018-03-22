@@ -2,7 +2,7 @@
 published: false
 ---
 
-In 2016 I discovered capsule wardrobes and fell hard and fast for the idea of a streamlined wardrobe. If you're not familiar with capsule wardrobes, it's essentially a mini wardrobe of clothes you love to wear each season. There's usually a specific number of items people try to stick to, around 30-40, which includes tops, pants, dresses, jackets, and shoes. 
+In 2016 I discovered capsule wardrobes and fell hard and fast for the idea of a streamlined wardrobe. I realized I tend to wear my favorite pieces over and over again, so why not lean into that? If you're not familiar with capsule wardrobes, it's essentially a mini wardrobe of clothes you love to wear each season. There's usually a specific number of items people try to stick to, around 30-40, which includes tops, pants, dresses, jackets, and shoes. 
 
 I found inspiration in [Project 333](https://bemorewithless.com/project-333/) and Caroline Joy's blog [Un-Fancy](http://www.un-fancy.com), and loved their minimalist approach to tackling your closet. But after attempting a capsule wardrobe, and failing at it few times, I've decided a strict capsule wardrobe isn't for me. Here's why. 
 
