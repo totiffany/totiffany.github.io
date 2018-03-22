@@ -17,9 +17,9 @@ description: >-
 ![tiff-blog-16.jpg]({{site.baseurl}}/img/tiff-blog-16.jpg)
 ![tiff-blog-12.jpg]({{site.baseurl}}/img/tiff-blog-12.jpg)
 
-In 2016 I discovered capsule wardrobes and fell hard and fast for the idea of a streamlined closet. I found inspiration in [Project 333](https://bemorewithless.com/project-333/) and the blog [Un-Fancy](http://www.un-fancy.com).If you're not familiar with capsule wardrobes, it's essentially a mini wardrobe of clothes you love to wear. There are a few rules to follow. 1. You try to stick to a limited number of items (Project 333 says 33 pieces, Un-Fancy says 37), which includes tops, bottoms, dresses, outerwear, and shoes. 2. You wear only those items for 3 months. 3. You avoid going shopping until it's time to put together next season's capsule. 
+In 2016 I discovered capsule wardrobes and fell hard and fast for the idea of a streamlined closet. If you're not familiar with capsule wardrobes, it's essentially a mini wardrobe of clothes you love to wear. There are a few rules to follow. 1. You try to stick to a limited number of items (around 30-40), which includes tops, bottoms, dresses, outerwear, and shoes. 2. You wear only those items for 3 months. 3. You avoid going shopping until it's time to put together next season's capsule. 
 
-I loved the minimalist approach to tackling your closet. But after attempting a capsule wardrobe, and failing at it few times, I've decided a strict capsule isn't for me. Here's why. 
+I found inspiration in [Project 333](https://bemorewithless.com/project-333/) and the blog [Un-Fancy](http://www.un-fancy.com), and loved the minimalist approach to tackling your closet. But after attempting a capsule wardrobe, and failing at it few times, I've decided a strict capsule isn't for me. Here's why. 
 
 **For starters, we don't really have seasons in San Francisco.** We're lucky to have temperate weather year round with a few exceptions. This means compiling mini wardrobes for each season just isn't realistic for me. There's not enough variety in the weather to justify it. I also learned a capsule wardrobe doesn't always account for unexpected weather. I like to have access to my sandals as well as my rain boots at all times, just in case.  
 
