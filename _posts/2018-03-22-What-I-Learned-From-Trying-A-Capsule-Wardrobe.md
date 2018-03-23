@@ -14,7 +14,7 @@ description: >-
 ![tiff-blog-16.jpg]({{site.baseurl}}/img/tiff-blog-16.jpg)
 ![tiff-blog-12.jpg]({{site.baseurl}}/img/tiff-blog-12.jpg)
 
-In 2016 I discovered capsule wardrobes and fell hard and fast for the idea of a streamlined closet. If you're not familiar with capsule wardrobes, it's essentially a mini wardrobe of clothes you love to wear. There are a few rules to follow. 1. You try to stick to a limited number of items (around 30-40), which includes tops, bottoms, dresses, outerwear, and shoes. 2. You wear only those items for 3 months. 3. You avoid going shopping until it's time to put together next season's capsule. 
+In 2016 I discovered capsule wardrobes and fell hard and fast for the idea of a streamlined closet. If you're not familiar with capsule wardrobes, it's essentially a mini wardrobe of clothes you love to wear. There are a few rules to follow. 1. You stick to a limited number of items (around 30-40), which includes tops, bottoms, dresses, outerwear, and shoes. 2. You wear only those items for 3 months. 3. You avoid going shopping until it's time to put together next season's capsule. 
 
 I found inspiration in [Project 333](https://bemorewithless.com/project-333/) and the blog [Un-Fancy](http://www.un-fancy.com), and loved the minimalist approach to tackling your closet. But after attempting a capsule wardrobe, and failing at it few times, I've decided a strict capsule isn't for me. Here's why. 
 
