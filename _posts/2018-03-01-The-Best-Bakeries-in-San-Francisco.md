@@ -25,4 +25,4 @@ Arsicault was named the best new bakery in America in 2016 by food magazine Bon 
 Bob's is a hole-in-the-wall donut shop that's open 24 hours a day. I'll be honest, I wasn't impressed the first couple times I tried this place, but I've since found my favorite donut – a traditional glazed old-fashioned. Once the man working behind the counter told me it was his favorite as well. And you can never go wrong with asking for whatever is coming hot out of the oven. 
 
 **Tartine**
-I have to include Tartine on the list because it's one of the most well-known bakeries in San Francisco, but personally, I prefer b. patisserie or Arsicault.  If you really want to go, their morning bun is out-of-this-world good and their sourdough really is delicious.
+I have to include Tartine on the list because it's one of the most well-known bakeries in San Francisco, but personally, I prefer b. patisserie or Arsicault.  If you really want to go, their morning bun is out-of-this-world good and their sourdough is delicious.
