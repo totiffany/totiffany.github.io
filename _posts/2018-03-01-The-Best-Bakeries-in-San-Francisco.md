@@ -13,7 +13,7 @@ image: holmes.jpg
 San Franciscans love their food, and bakeries are no exception. After we moved here I was thrilled to discover the variety of bakery options available. I truly believe a flaky, buttery pastry can be life-changing. Anytime someone comes to visit us we take them to at least one of our favorite bakeries, and now I'm sharing the goodness with you! 
 
 **b. patisserie** 
-My absolute favorite bakery in the city. Everything here is delicious, but the best thing on the menu is the traditional kouign aman. It's unassuming compared alongside the other pastries, but it's simply the best. The chocolate banana almond croissant is also wonderful and their hot chocolate comes in a cup the size of a small bowl.  
+My absolute favorite bakery in the city. Everything here is delicious, but the best thing on the menu is the traditional kouign aman. It's unassuming alongside the other pastries, but it's simply the best. The chocolate banana almond croissant is also wonderful and their hot chocolate comes in a cup the size of a small bowl.  
 
 **Mr. Holmes Bakehouse**
 Home of the famous cruffin – A half muffin, half croissant creation with a delightful cream filling that comes in a different flavor every day. There are plenty of other baked goods to choose from, but the cruffin and donuts (which also change flavors daily) really are the best. Be sure to go early in the week to avoid a long line. No seating is available, but the hot pink neon sign inside and beautiful pastry boxes make for great pictures. 
