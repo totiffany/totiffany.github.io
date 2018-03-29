@@ -1,9 +1,7 @@
 ---
 published: false
 ---
-After a month full of rain the sun finally came back out this week! 
-
-Overall, the rain was a nice reminder to slow down and take it easy. We needed it because Hazel and I (and now Brian) caught an annoying cold that just wouldn't quit. There was a lot of time spent indoors reading and baking. It was nice, but we're happy to see the sunshine again. I was starting to get a little stir crazy. I finally bought one of those [silly looking stroller covers](https://www.amazon.com/gp/product/B003N64Z7W/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B003N64Z7W&linkCode=as2&tag=redletterda04-20&linkId=71d721691058dd47edc95c5eaa58407c)so Hazel and I could go on walks in the rain, and of course by the time it arrived the weather improved. 
+After a month full of rain the sun finally decided to come back out this week! Being a homebody at heart I normally love the rain. It's a nice reminder to slow down and take it easy. Which we needed because Hazel and I (and now Brian) caught an annoying cold that just wouldn't quit. There was a lot of time spent reading and baking. It was nice, but we're happy to see the sunshine again. After several days stuck inside I was starting to get a little stir crazy. I finally bought one of those [silly looking stroller covers](https://www.amazon.com/gp/product/B003N64Z7W/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B003N64Z7W&linkCode=as2&tag=redletterda04-20&linkId=71d721691058dd47edc95c5eaa58407c), so Hazel and I could go on walks in the rain, and of course by the time it arrived the weather improved. 
 
 On the rare days it wasn't raining we did manage to see a few fun things in the city this month. Here's what we've been up to. 
 
