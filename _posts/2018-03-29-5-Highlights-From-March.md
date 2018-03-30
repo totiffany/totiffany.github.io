@@ -2,7 +2,7 @@
 published: true
 image: haas-lilienthal-house.jpg
 ---
-The sun finally decided to come back out this week! San Francisco winters aren’t bad, but we do tend to get a lot of rain, and March was full. of. rain. I normally love rainy weather. It’s a nice excuse for my homebody self to stay indoors to read or bake some bread. Plus this month Hazel and I caught an annoying cold that just wouldn’t quit, so I liked taking it easy. But after several days stuck inside I started to get a little stir crazy. I finally bought one of those [funny looking stroller covers](https://www.amazon.com/gp/product/B003N64Z7W/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B003N64Z7W&linkCode=as2&tag=redletterda04-20&linkId=71d721691058dd47edc95c5eaa58407c) so we could go on walks, and of course by the time it arrived the weather improved. 
+The sun finally decided to come back out this week! San Francisco winters aren’t bad, but we do tend to get a lot of rain, and March was full. of. rain. I normally love rainy weather. It’s a nice excuse for my homebody self to stay indoors to read or bake some bread. Plus this month Hazel and I caught an annoying cold that just wouldn’t quit, so I liked taking it easy. But after several days stuck inside I was starting to get a little stir crazy. I finally bought one of those [funny looking stroller covers](https://www.amazon.com/gp/product/B003N64Z7W/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B003N64Z7W&linkCode=as2&tag=redletterda04-20&linkId=71d721691058dd47edc95c5eaa58407c) so we could go on walks, and of course by the time it arrived the weather improved. 
 
 On the rare days it wasn't raining we did manage to see a few fun things in the city this month. Here's what we've been up to. 
 
