@@ -8,7 +8,7 @@ description: >-
   journal system.
 image: Bullet-Joural-Red-Letter-Day-2.JPG
 ---
-![Bullet-Joural-Red-Letter-Day-2.jpg]({{site.baseurl}}/img/Bullet-Joural-Red-Letter-Day-2.jpg)
+
 
 My coworkers were the first to tell me about bullet journaling. Over lunch they explained that it was a journal and planner all-in-one, and "whatever you want it to be." It seemed too vague and complicated to appeal to me, so I wasn't convinced until I watched [this video](http://bulletjournal.com) by the creator of the bullet journal system. 
 
