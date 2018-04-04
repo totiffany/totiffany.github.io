@@ -1,6 +1,6 @@
 ---
 published: true
-image: IMG_3074-edit.jpg
+image: san-francisco-victorian.jpg
 description: >-
   The sun finally came back out this week! San Francisco winters aren’t bad, but
   we do tend to get some rain, and March was full. of. rain. I normally love
@@ -8,7 +8,7 @@ description: >-
   indoors to read or bake some bread. But after several days of being stuck
   inside I was starting to get a little stir crazy.
 ---
-![IMG_3074-edit.jpg]({{site.baseurl}}/img/IMG_3074-edit.jpg)
+![san-francisco-victorian.jpg]({{site.baseurl}}/img/san-francisco-victorian.jpg)
 
 The sun finally came back out this week! San Francisco winters aren’t bad, but we do tend to get some rain every year, and March was full. of. rain. I normally love rainy weather. It feels cozy and is a nice excuse for my homebody self to stay indoors to read or do some baking. But after several days of being stuck inside I was starting to get a little stir crazy. I finally bought one of those [funny looking stroller covers](https://www.amazon.com/gp/product/B003N64Z7W/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B003N64Z7W&linkCode=as2&tag=redletterda04-20&linkId=71d721691058dd47edc95c5eaa58407c) so Hazel and I could still go on walks, and of course by the time it arrived the weather improved. 
 
