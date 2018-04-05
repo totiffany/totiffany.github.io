@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 image: IMG_2979-edit.jpg
 ---
 ![IMG_2979-edit.jpg]({{site.baseurl}}/img/IMG_2979-edit.jpg)
