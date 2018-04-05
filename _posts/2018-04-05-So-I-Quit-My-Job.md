@@ -4,7 +4,7 @@ image: IMG_2979-edit.jpg
 ---
 ![IMG_2979-edit.jpg]({{site.baseurl}}/img/IMG_2979-edit.jpg)
 
-It feels like I just wrote about how much I was loving going back to work after maternity leave, yet here we are. Everything I said in that post holds true. I did like going back to work. I did enjoy having time that was my own again, being around adults, contributing to a team, and that overall feeling of accomplishment. But a few things happened in January that helped me realize I would rather be at home taking care of Hazel.
+It feels like [I just wrote about](http://redletterdayblog.com/Going-Back-to-Work-After-Maternity-Leave) how much I was loving going back to work after maternity leave, yet here we are. Everything I said in [that post](http://redletterdayblog.com/Going-Back-to-Work-After-Maternity-Leave) holds true. I did like going back to work. I did enjoy having time that was my own again, being around adults, contributing to a team, and that overall feeling of accomplishment. But a few things happened in January that helped me realize I would rather be at home taking care of Hazel.
 
 The first was we had a difficult time finding a new nanny.  The nanny I had lined up after the holidays got a different job, which meant we had to scramble to find someone else. It was hard. It was stressful. And it was enough for me to consider throwing in the towel and watching Hazel myself. Fortunately, we were finally able to find a new nanny, but the whole experience got me thinking more about staying at home. 
 
