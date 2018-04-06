@@ -1,6 +1,13 @@
 ---
 published: true
 image: IMG_2979-edit.jpg
+description: >-
+  It feels like I just wrote about how much I was loving going back to work
+  after maternity leave, yet here we are. Everything I said in that post holds
+  true. I did like going back to work. I did enjoy having time that was my own
+  again, being around adults, contributing to a team, and that overall feeling
+  of accomplishment. But a few things happened in January that helped me realize
+  I would rather be at home taking care of Hazel.
 ---
 ![IMG_2979-edit.jpg]({{site.baseurl}}/img/IMG_2979-edit.jpg)
 
