@@ -24,6 +24,6 @@ Using what I’d learned in the class I decided to take it one step further and 
 
 I didn't expect much to happen with it, but in the year since I opened my shop I've managed to make 10 sales! The whole experience has taught me I need to stop being afraid to try new things. Life is too short to worry that I won't be good enough at something to not give it a shot. And the best way to learn is by diving in and figuring things out along the way. 
 
-It's inspired me to continue finding other hobbies I might enjoy. I recently created a macrame wall hanging and loved the creative process that went into that as well. I'm planning to add it to the shop soon. 
+Its inspired me to continue finding other hobbies I might enjoy. I recently created a macrame wall hanging and loved the creative process that went into that as well. I'm planning to add it to the shop soon. 
 
 What about you? Have you ever been afraid to try something you secretly wanted to do? What creative hobby do you turn to when you find yourself in a rut? I'd love to hear about it.
