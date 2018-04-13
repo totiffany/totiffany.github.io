@@ -29,9 +29,9 @@ Ingredients:
 1/2 tsp yeast
 1 1/2 tsp salt
 1 3/4 cups water
-```
 
 Directions:
-In a large bowl, mix flour, yeast and salt. Add the water, and stir with your hand until just mixed (remember – no kneading!). The dough should be very sticky and shaggy. Cover the bowl with plastic wrap and let rise overnight (12-18 hours). Heat oven to 450 degrees. Place a cast iron pot with lid in the oven and heat for 30 minutes. In the meantime, pour dough onto a floured baking sheet. Lightly pat the dough with some flour and create a ball. Remove the pot from the oven. Lift the dough and baking sheet into the hot pan. Bake covered for 30 minutes. Then remove the lid and cook for another 10-15 minutes to get the outside golden and crispy. That's it! Pat yourself on the back for being such a talented bread maker.  
+In a large bowl, mix flour, yeast and salt. Add the water, and stir with your hand until just mixed (remember – no kneading!). The dough should be very sticky and shaggy. Cover the bowl with plastic wrap and let rise overnight (12-18 hours). Heat oven to 450 degrees. Place a cast iron pot with lid in the oven and heat for 30 minutes. In the meantime, pour dough onto a floured baking sheet. Lightly pat the dough with some flour and create a ball. Remove the pot from the oven. Lift the dough and baking sheet into the hot pan. Bake covered for 30 minutes. Then remove the lid and cook for another 10-15 minutes to get the outside golden and crispy. That's it! Pat yourself on the back for being such a talented bread maker.
+```
 
 Please let me know if you make this recipe and how it turns out for you!
