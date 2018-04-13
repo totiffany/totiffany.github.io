@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 image: easy-bread-recipe-1.jpg
 description: >-
   Today I'm sharing my absolute favorite bread recipe. I know baking bread can
