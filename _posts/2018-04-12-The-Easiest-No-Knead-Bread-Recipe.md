@@ -1,11 +1,18 @@
 ---
 published: false
-image: null
+image: easy-bread-recipe-1.jpg
+description: >-
+  Today I'm sharing my absolute favorite bread recipe. I know baking bread can
+  be intimidating, but you can make this recipe. This recipe is super forgiving,
+  there's no complicated ingredients, special equipment, or kneading required,
+  and in the end, it creates a beautiful, golden loaf of bread that will have
+  you feeling like you could open your own bakery.
 ---
 ![easy-bread-recipe-2.jpg]({{site.baseurl}}/img/easy-bread-recipe-2.jpg)
 
-Today I'm sharing my absolute favorite bread recipe. I know baking bread can be intimidating, but you can make this recipe. Trust me, I love to bake, but I'm a lazy bread maker. This recipe is super forgiving, there's no complicated ingredients, special equipment, or kneading required, and in the end, it creates a beautiful, golden loaf of bread that will have you feeling like you could open your own bakery.  
-The original recipe for this bread came from The New York Times, and I've adapted it a bit to make it even easier. The only thing it requires is time, as you have to let the dough rise overnight. A couple of other notes before you get started... 
+Today I'm sharing my absolute favorite bread recipe. I know baking bread can be intimidating, but you can make this recipe. This recipe is super forgiving, there's no complicated ingredients, special equipment, or kneading required, and in the end, it creates a beautiful, golden loaf of bread that will have you feeling like you could open your own bakery. 
+
+The original recipe for this bread came from [The New York Times](https://cooking.nytimes.com/recipes/11376-no-knead-bread), and I've adapted it a bit to make it even easier. The only thing it requires is time, as you have to let the dough rise overnight. A couple of other notes before you get started... 
 
 You don't need a cast iron pot. I finally purchased [this one from IKEA](https://www.ikea.com/us/en/catalog/products/90232840/) a few years ago specifically for making bread, but before that, I used our stainless steel soup pot. You can use anything that has a lid and can take the heat. 
 
