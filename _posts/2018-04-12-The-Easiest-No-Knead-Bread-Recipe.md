@@ -23,9 +23,9 @@ Don't worry about your dough looking like a perfect ball before you put it in th
 
 Ok here we go. I'm so excited for you to try this. There are few things as good as homemade bread. It will make your house smell amazing and it tastes incredible. Golden brown and crusty on the outside, chewy on the inside – Your friends will be so impressed! Unless you want to keep it all for yourself. I would understand. 
 
-Ingredients:
+Ingredients: 
 3 cups all-purpose flour
-1/2 tsp yeast 
+1/2 tsp yeast
 1 1/2 tsp salt
 1 3/4 cups water
 
