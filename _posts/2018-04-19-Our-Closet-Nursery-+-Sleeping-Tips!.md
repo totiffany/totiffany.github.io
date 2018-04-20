@@ -29,12 +29,4 @@ As hard as it was, I tried to think about sleep training like any other challeng
 
 That said, we still run into sleep issues when she's teething, or sick, or we're traveling, or any number of factors. But it usually only takes a few days for us to get back on track. I think as a parent you have to be flexible. I'm definitely not a sleeping expert, and I know what works for one baby might not work for another. For example, after raving about our rock n' play and lending it to a friend their baby ended up hating it! It's definitely a trial and error process that takes a lot of patience. 
 
-Do you have a creative sleeping arrangement for your kids? Did you do sleep training with your babies? I'd love to hear any sleeping tips that work well for you in the comments below! 
-
-
-
-
-
-
-
-
+Do you have a creative sleeping arrangement for your kids? Did you do sleep training with your babies? I'd love to hear any sleeping tips that work well for you in the comments below!
