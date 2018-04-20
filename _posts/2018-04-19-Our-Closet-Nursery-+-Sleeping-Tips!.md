@@ -1,11 +1,9 @@
 ---
 published: true
 description: >-
-  Today I'm sharing my absolute favorite bread recipe. I know baking bread can
-  be intimidating, but trust me, you can make this. This recipe is super
-  forgiving, there's no complicated ingredients, special equipment, or kneading
-  required, and in the end, it creates a beautiful, golden loaf of bread that
-  will have you feeling like you could open your own bakery.
+*Pictures coming soon!*
+
+Many people are surprised to hear our baby sleeps in a closet. But I can promise you it's very common in San Francisco. Real estate is expensive, and when it comes to sleeping arrangements we have to get creative!
 ---
 *Pictures coming soon!*
 
