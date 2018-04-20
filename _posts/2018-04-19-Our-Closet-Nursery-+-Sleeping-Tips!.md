@@ -1,12 +1,7 @@
 ---
 published: true
-description: >-
-*Pictures coming soon!*
-
-Many people are surprised to hear our baby sleeps in a closet. But I can promise you it's very common in San Francisco. Real estate is expensive, and when it comes to sleeping arrangements we have to get creative!
+description: Many people are surprised to hear our baby sleeps in a closet. But I can promise you it's very common in San Francisco. Real estate is expensive, and when it comes to sleeping arrangements we have to get creative!
 ---
-*Pictures coming soon!*
-
 Many people are surprised to hear our baby sleeps in a closet. But I can promise you it's very common in San Francisco. Real estate is expensive, and when it comes to sleeping arrangements we have to get creative!
 
 The closet we have Hazel in is a deep walk-in closet. We've turned the back half into a nursery and the front half is where I keep all of my clothes (Brian keeps his things in our smaller bedroom closet). When we were considering renting this apartment I liked that the closet was big enough we could transform the whole thing into a small bedroom for Hazel if we needed to. But for now, she doesn't require a lot of sleeping space. 
