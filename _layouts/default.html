@@ -5,7 +5,7 @@
 			{% include header.html %}
 
 			<div class="container">
-			{{ content }}
+			{{ content | replace: '<a href="http', '<a rel="nofollow" target="_blank" href="http' }}
 			</div><!-- /.container -->
 
 			{% include footer.html %}

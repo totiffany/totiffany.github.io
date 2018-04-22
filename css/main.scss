@@ -77,8 +77,8 @@ a {
      text-decoration: underline;
      text-decoration-skip:ink;
      -moz-text-decoration-skip:ink;
-     text-decoration-color: $accent;
-     -webkit-text-decoration-color: $accent;
+     text-decoration-color: $black;
+     -webkit-text-decoration-color: $black;
 
 }
 
@@ -92,8 +92,8 @@ a:hover {
      text-decoration: underline;
      text-decoration-skip:ink;
      -moz-text-decoration-skip:ink;
-     text-decoration-color: $accent;
-     -webkit-text-decoration-color: $accent;
+     text-decoration-color: $black;
+     -webkit-text-decoration-color: $black;
 }
 
 /* selected link */
