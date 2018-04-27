@@ -1,5 +1,14 @@
 ---
 published: true
+description: >-
+  My little sister graduated from college today! I'm feeling so proud of her and
+  all the hard work that went into her degree. College is a ton of work, time,
+  and grit, and I remember feeling elated when it was over. But the transition
+  from college to the working world wasn't an easy one for me. It felt like
+  everyone had their plans figured out and I didn't. Now six years later, my
+  sister is feeling the same way. We've been having lots of conversations over
+  the past few weeks about the stress of the job hunt as she looks for that
+  first, entry-level job.
 ---
 My little sister graduated from college today! I'm feeling so proud of her and all the hard work that went into her degree. College is a ton of work, time, and grit, and I remember feeling elated when it was over. But the transition from college to the working world wasn't an easy one for me. It felt like everyone had their plans figured out and I didn't. Now six years later, my sister is feeling the same way. We've been having lots of conversations over the past few weeks about the stress of the job hunt as she looks for that first, entry-level job.
 
