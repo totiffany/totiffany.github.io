@@ -10,7 +10,7 @@ I can't believe our little Hazel is 1! I know every parent says this, but oh my 
 
 Hazel is a light everywhere she goes. The comment we get the most from strangers is, "She's so smiley!" She has an easy, big, contagious smile she shares with everyone. 
 
-Her favorite toys right now are her red rubber ball and her new xylophone she got for her birthday. She chases that ball all over our apartment and gets a big smile on her face whenever she sees it. I was so impressed how easily she figured out the xylophone after I gave it to her. I guess babies just naturally want to wack things. 
+Her favorite toys right now are her red rubber ball and the new xylophone she got for her birthday. She chases that ball all over our apartment and gets a big smile on her face whenever she sees it. I was so impressed how easily she figured out the xylophone after I gave it to her. I guess babies just naturally want to wack things. 
 
 Her favorite activity is playing hide and seek with Brian. It's more Brian hiding and popping out to surprise her, but she squeals with excitement every time he does it. She loves books too and will sit in my lap patiently as I read book after book to her. And she loves music. She's always been mesmerized by her dad playing the guitar, and now she likes to try strumming it herself. 
 
