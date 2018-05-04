@@ -1,7 +1,11 @@
 ---
 published: true
+description: >-
+  I can't believe our little Hazel is 1! I know every parent says this, but oh
+  my goodness where did the time go?? Sometimes I miss that squishy newborn
+  stage, but every month with her brings new joys to our lives.
 ---
-I can't believe our little Hazel is 1! I know every parent says this, but oh my goodness where did the time go?? Sometimes I miss that squishy newborn stage, but every month brings new joys to our lives. 
+I can't believe our little Hazel is 1! I know every parent says this, but oh my goodness where did the time go?? Sometimes I miss that squishy newborn stage, but every month with her brings new joys to our lives. 
 
 Hazel is a light everywhere she goes. The comment we get the most from strangers is, "She's so smiley!" She has an easy, big, contagious smile she shares with everyone. 
 
