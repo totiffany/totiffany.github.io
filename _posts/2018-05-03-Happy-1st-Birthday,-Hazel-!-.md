@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 I can't believe our little Hazel is 1! I know every parent says this, but oh my goodness where did the time go?? Sometimes I miss that squishy newborn stage, but every month brings new joys to our lives. 
 
@@ -21,13 +21,4 @@ I really can't believe it's been an entire year since we were in the hospital ho
 
 It's crazy. This much love. It feels like my heart has cracked open and will never be the same. 
 
-We love you so much Hazel! Happy first birthday baby girl! 
-
-
-
-
-
-
-
-
-
+We love you so much Hazel! Happy first birthday baby girl!
