@@ -14,7 +14,7 @@ Her favorite toys right now are her red rubber ball and the new xylophone she go
 
 Her favorite activity is playing hide and seek with Brian. It's more Brian hiding and popping out to surprise her, but she squeals with excitement every time he does it. She loves books too and will sit in my lap patiently as I read book after book to her. And she loves music. She's always been mesmerized by her dad playing the guitar, and now she likes to try strumming it herself. 
 
-She crawls super fast everywhere she goes and pulls herself up on everything. She can walk as long as she's holding onto something, but doesn't show a lot of interest in walking on her own. 
+She crawls super fast and pulls herself up on everything. She can walk as long as she's holding onto something, but doesn't show a lot of interest in walking on her own. 
 
 The sound she makes the most is "Buh" and we think it's because all of her favorite things start with the letter "B" – Ball, bottle, and binky. Aside from that, she says "Ma" occasionally for mama. Brian is jealous, but I know who the real favorite is. 
 
