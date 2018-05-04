@@ -22,8 +22,6 @@ She LOVES to eat. And will eat anything we put in front of her. She's started to
 
 She sleeps well at night but continues to hate naps. She'll take them, but only after loudly protesting for at least 30 minutes. She's probably a little too reliant on her binky, but it helps her sleep, so we're certainly not taking it away anytime soon. 
 
-I really can't believe it's been an entire year since we were in the hospital holding her for the first time. I had a very long labor and was so exhausted by the time she was born that the strongest emotion I felt after meeting her was relief. I was just so relieved it was over and that she was finally here and ok. But over the next few hours and days, I came to know she and I were connected and that she knew who I was. 
-
-It's crazy. This much love. It feels like my heart has cracked open and will never be the same. 
+I really can't believe it's been an entire year since we were in the hospital holding her for the first time. I had a very long labor and was so exhausted by the time she was born that the strongest emotion I felt after meeting her was relief. I was just so relieved it was over and that she was finally here and ok. But over the next few hours and days, I came to know she and I were connected and that she knew who I was. It's crazy. This much love. It feels like my heart has cracked open and will never be the same. 
 
 We love you so much Hazel! Happy first birthday baby girl!
