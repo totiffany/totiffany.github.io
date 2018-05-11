@@ -25,4 +25,4 @@ I'm not sure how best to explain this one, but I've deloped an almost overwhelmi
 
 And perhaps most important of all, becoming a mother has affirmed my belief in God. Throughout this experience I have felt his influence and love. I know there is something much bigger than me at work here. 
 
-I wish you all a wonderful Mother's Day! I hope you feel celebrated and honored for all you do.
+I wish you all a wonderful Mother's Day! May the mothers in our lives feel celebrated and honored for they do. 
