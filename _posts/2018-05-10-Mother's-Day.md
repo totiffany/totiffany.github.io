@@ -1,5 +1,11 @@
 ---
 published: true
+description: >-
+  I can’t believe it’s been a year since Hazel made me a mother. Around this
+  time last year I was still recovering from her birth and definitely not
+  getting enough sleep. So much has changed since then. Hazel has gotten so big.
+  Brian and I comment on it every day. Where did our tiny baby go? How is she
+  almost walking?
 ---
 I can’t believe it’s been a year since Hazel made me a mother. Around this time last year I was still recovering from her birth and definitely not getting enough sleep. So much has changed since then. Hazel has gotten so big. Brian and I comment on it every day. Where did our tiny baby go? How is she almost walking?
 
