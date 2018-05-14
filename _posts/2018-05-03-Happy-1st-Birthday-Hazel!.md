@@ -24,7 +24,7 @@ She crawls super fast and pulls herself up on everything. She can walk as long a
 
 The sound she makes the most is "Buh" and we think it's because all of her favorite things start with the letter "B" – Ball, bottle, and binky. Aside from that, she says "Ma" occasionally for mama. Brian is jealous, but I know who the real favorite is. 
 
-She LOVES to eat. And will eat anything we put in front of her. She's started to get very vocal at the dinner table when she wants more food. It seems like she will eat all day. I never know if I'm giving her enough. 
+She LOVES to eat. And will eat anything we put in front of her (Except that cake! We made it just for her to smash it, but she was content to just pick the sprinkles off the top and eat those). She's started to get very vocal at the dinner table when she wants more food. It seems like she will eat all day. I never know if I'm giving her enough. 
 
 ![hazel-birthday-2.jpg]({{site.baseurl}}/img/hazel-birthday-2.jpg)
 
