@@ -14,7 +14,7 @@ Hazel is a light everywhere she goes. The comment we get the most from strangers
 
 Her favorite toys right now are her red rubber ball and the new xylophone she got for her birthday. She chases that ball all over our apartment and gets a big smile on her face whenever she sees it. I was so impressed how easily she figured out the xylophone after I gave it to her. I guess babies just naturally want to wack things. 
 
-![hazel-birthday-2.jpg]({{site.baseurl}}/img/hazel-birthday-2.jpg)
+![hazel-birthday-4.jpg]({{site.baseurl}}/img/hazel-birthday-4.jpg)
 
 Her favorite activity is playing hide and seek with Brian. It's more Brian hiding and popping out to surprise her, but she squeals with excitement every time he does it. She loves books too and will sit in my lap patiently as I read book after book to her. And she loves music. She's always been mesmerized by her dad playing the guitar, and now she likes to try strumming it herself. 
 
@@ -26,7 +26,7 @@ The sound she makes the most is "Buh" and we think it's because all of her favor
 
 She LOVES to eat. And will eat anything we put in front of her. She's started to get very vocal at the dinner table when she wants more food. It seems like she will eat all day. I never know if I'm giving her enough. 
 
-![hazel-birthday-4.jpg]({{site.baseurl}}/img/hazel-birthday-4.jpg)
+![hazel-birthday-2.jpg]({{site.baseurl}}/img/hazel-birthday-2.jpg)
 
 She sleeps well at night but continues to hate naps. She'll take them, but only after loudly protesting for at least 30 minutes. She's probably a little too reliant on her binky, but it helps her sleep, so we're certainly not taking it away anytime soon. 
 
