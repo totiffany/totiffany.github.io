@@ -1,10 +1,11 @@
 ---
 published: true
 description: >-
-  I can't believe our little Hazel is 1! I know every parent says this, but oh
-  my goodness where did the time go?? Sometimes I miss that squishy newborn
-  stage, but every month with her brings new joys to our lives. Here are a few
-  things I want to remember at this age...
+  I can't believe our little Hazel is 1! I know every parent says this, but  my
+  goodness where did the time go?? Sometimes I miss that squishy newborn stage,
+  but every month with her brings new joys to our lives. Here are a few things I
+  want to remember at this age...
+image: hazel-birthday-1.jpg
 ---
 ![hazel-birthday-1.jpg]({{site.baseurl}}/img/hazel-birthday-1.jpg)
 
