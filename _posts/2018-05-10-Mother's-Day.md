@@ -8,8 +8,7 @@ description: >-
   walking?
 image: tiffany-hazel-1-2.jpg
 ---
-![]({{site.baseurl}}/img/![tiffany-hazel-1-2.jpg]({{site.baseurl}}/img/tiffany-hazel-1-2.jpg)
-)
+![tiffany-hazel-1-2.jpg]({{site.baseurl}}/img/tiffany-hazel-1-2.jpg)
 It's been a little over a year since Hazel made me a mother. Around this time last year I was still recovering from her birth and definitely not getting enough sleep. So much has changed since then. Hazel has gotten so big. Brian and I comment on it every day. Where did our tiny baby go? How is she almost walking?
 
 As Mother’s Day approaches this Sunday I’ve been thinking a lot about how becoming a mother has changed me over the past year. Here are just a few of ways I feel I've changed. 
