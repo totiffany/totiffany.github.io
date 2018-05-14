@@ -9,9 +9,10 @@ description: >-
 image: tiffany-hazel.jpg
 ---
 ![tiffany-hazel-1-2.jpg]({{site.baseurl}}/img/tiffany-hazel.jpg)
+
 It's been a little over a year since Hazel made me a mother. Around this time last year I was still recovering from her birth and definitely not getting enough sleep. So much has changed since then. Hazel has gotten so big. Brian and I comment on it every day. Where did our tiny baby go? How is she almost walking?
 
-As Mother’s Day approaches this Sunday I’ve been thinking a lot about how becoming a mother has changed me over the past year. Here are just a few of ways I feel I've changed. 
+As Mother’s Day approaches this Sunday I’ve been thinking a lot about how becoming a mother has changed me over the past year. Here are just a few of ways I feel I've changed...
 
 I now know exactly what my favorite baby products are, and I love buying those things for other mamas. I never used to know what to give mothers at baby showers. The sizing of baby clothes confused me, and I wasn't sure which books or toys were age appropriate. I would usually get them a cute towel and bath products, which is a fine gift, but not as fun as some of the stuff I know about now. 
 
