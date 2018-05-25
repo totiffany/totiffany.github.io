@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 The truth is, I need this blog post more than anyone this week. I've been feeling tired and cranky lately. We're headed to southern California for the long weekend to visit family, which I am really excited about, but traveling always stresses me out. And traveling with a baby even more so. I know it's a short trip, and so many people love to travel, but to me nothing about airplane travel is fun. I hate the packing, the airport, security, and the anxiety of not knowing how Hazel is going to handle the flight. We've been lucky so far, historically she's gone right to sleep, but now she's at an age where she really needs to move and I'm not sure how it's going to go. 
 
@@ -17,4 +17,4 @@ Book a vacation. For as much as I hate air travel, I’m all about the next vaca
 
 Practice some self-care. For me, this means booking a facial or a massage. I’ve learned some people really don’t like having their faces touched (ahem, Brian), but for me facials are heavenly. I rarely have time to pamper my skin and it feels amazing to have a skin treatment tailored just for me. And massages saved me during pregnancy. They helped keep all the aches and pains at bay and made those nine months manageable. I know facials and massages can get pricey, so I tend to book my facials at a local beauty school and massages only when I’m really starting to feel I need one. 
 
-What are your favorite things to do when you need a pick-me-up? I'd love to hear them! 
+What are your favorite things to do when you need a pick-me-up? I'd love to hear them!
