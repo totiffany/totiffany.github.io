@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 May was a long month and overall a bit of a snooze for us. Which was fine by me. I like having time to slow down before things really pick up again in the summer. However, when things are slow I've realized it's easy for me to get settled into my routine with Hazel of naps/meals/tidying/grocery shopping. It's nice to have some order, but if I don't switch things up now and then I risk getting bored and a bit lonely. To make sure I have plans to look forward to I've been trying to spend time with another mom friend at least once a week. For some once a week might not be often enough, and for others, it's too much, but keeping that goal in mind has helped me get out of the apartment and make some new friends. I've gotta say, city moms are inspiring! Raising kids here can be challenging, but it's cool to see how everyone is making it work. Aside from those weekly hangouts here are a few other highlights from May... 
 
@@ -11,13 +11,4 @@ May was a long month and overall a bit of a snooze for us. Which was fine by me.
 
 **[Wendell the Narwhal book](https://www.amazon.com/gp/product/1927018668/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=1927018668&linkCode=as2&tag=redletterda04-20&linkId=2c5ac7f31d8ab8da5806e7de258faeea)**. I bought this book as one of Hazel's birthday presents and it is adorable! The illustrations are beautiful, and it has a  sweet and simple message about inclusion and diversity. We all have unique talents to share! Hazel loves it and is happy to have me read it to her again and again. 
 
-**Visiting the parks and playgrounds in San Francisco**. We may have small apartments in San Francisco, but what we lack in space we make up for in tons of great parks and playgrounds to choose from. Hazel is just getting to an age where she appreciates slides and other playground equipment. She's still small enough that I have to stay close to her, but it's fun to see her get braver and crawl off to explore things on her own. We went to a few different parks this month, and I'm so excited to keep visiting them and more over the summer. I also can't wait for more beach trips and splash pads! It's going to be a fun summer! 
-
-
-
-
-
-
-
-
-
+**Visiting the parks and playgrounds in San Francisco**. We may have small apartments in San Francisco, but what we lack in space we make up for in tons of great parks and playgrounds to choose from. Hazel is just getting to an age where she appreciates slides and other playground equipment. She's still small enough that I have to stay close to her, but it's fun to see her get braver and crawl off to explore things on her own. We went to a few different parks this month, and I'm so excited to keep visiting them and more over the summer. I also can't wait for more beach trips and splash pads! It's going to be a fun summer!
