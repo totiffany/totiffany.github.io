@@ -4,12 +4,7 @@ description: >-
   The truth is, I need this blog post more than anyone this week. I've been
   feeling tired and cranky lately. We're headed to southern California for the
   long weekend to visit family, which I am really excited about, but traveling
-  always stresses me out. And traveling with a baby even more so. I know it's a
-  short trip, and so many people love to travel, but to me nothing about
-  airplane travel is fun. I hate the packing, the airport, security, and the
-  anxiety of not knowing how Hazel is going to handle the flight. We've been
-  lucky so far, historically she's gone right to sleep, but now she's at an age
-  where she really needs to move and I'm not sure how it's going to go.
+  always stresses me out. And traveling with a baby even more so.
 ---
 The truth is, I need this blog post more than anyone this week. I've been feeling tired and cranky lately. We're headed to southern California for the long weekend to visit family, which I am really excited about, but traveling always stresses me out. And traveling with a baby even more so. I know it's a short trip, and so many people love to travel, but to me nothing about airplane travel is fun. I hate the packing, the airport, security, and the anxiety of not knowing how Hazel is going to handle the flight. We've been lucky so far, historically she's gone right to sleep, but now she's at an age where she really needs to move and I'm not sure how it's going to go. 
 
