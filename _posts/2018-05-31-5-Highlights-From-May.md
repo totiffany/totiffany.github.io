@@ -7,7 +7,10 @@ description: >-
   settled into my routine with Hazel of naps/meals/tidying/grocery shopping.
   It's nice to have some order, but if I don't switch things up now and then I
   risk getting bored and a bit lonely.
+image: Hazel-1.jpg
 ---
+![Hazel-1.jpg]({{site.baseurl}}/img/Hazel-1.jpg)
+
 May was a long month and overall a bit of a snooze for us. Which was fine by me. I like having time to slow down before things really pick up again in the summer. However, when things are slow I've realized it's easy for me to get settled into my routine with Hazel of naps/meals/tidying/grocery shopping. It's nice to have some order, but if I don't switch things up now and then I risk getting bored and a bit lonely. 
 
 To make sure I have plans to look forward to I've been trying to spend time with another mom friend at least once a week. For some once a week might not be often enough, and for others, it's too much, but keeping that goal in mind has helped me get out of the apartment and make some new friends. I've gotta say, city moms are inspiring! Raising kids here can be challenging, but it's cool to see how everyone is making it work. Aside from those weekly hangouts here are a few other highlights from May... 
