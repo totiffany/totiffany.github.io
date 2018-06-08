@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 description: >-
   I’ve been thinking a lot about productivity this week. Since becoming a mom
   I’ve had to come to terms with the fact that I simply cannot get as much done
@@ -18,4 +18,4 @@ The to-do list never quits. We all have to eat which requires some semblance of 
 
 There are some days I feel super motivated, and I'm able to keep the house tidy and get dinner on the table, but other days where I don't feel up to anything, and I end up on Netflix while Hazel is napping because I just need a break. And I have to remind myself that that's ok! Our value as mothers doesn't come from how much stuff we get done. Although it can certainly feel that way sometimes. I know I feel much better about myself at the end of a productive day. But I believe all of us have inherent value regardless of what we manage to check off our to-do list. 
 
-So give yourself a break mama! You are doing just fine. 
+So give yourself a break mama! You are doing just fine.
