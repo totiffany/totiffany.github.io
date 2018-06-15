@@ -19,4 +19,4 @@ Product-wise I'm obsessed with the [Kristin Ess Hair line at Target](https://www
 
 I have a lot of natural curl in my hair and have tried a ton of products over the years to tame it. For me, the holy grail of styling products is [Miss Jessie's Quick Curls](https://www.amazon.com/gp/product/B002SKUFOQ/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B002SKUFOQ&linkCode=as2&tag=redletterda04-20&linkId=dde5a70cbceda72911e5962c606e8875). I brush my hair out with a [Wet Brush](https://www.amazon.com/gp/product/B005LPN8R6/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B005LPN8R6&linkCode=as2&tag=redletterda04-20&linkId=4ff751ac777f2bf3acb94337583afcd4) and work a dime size amount of this into my hair. It creates soft, natural looking curls that aren't crunchy. 
 
-So there you have it! More than you ever wanted to know about my hair and favorite products. Any tips for post-partum hair loss? Send them my way please. 
+So there you have it! More than you ever wanted to know about my hair and favorite hair care products. Any tips for post-partum hair loss? Send them my way please. 
