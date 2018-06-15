@@ -1,5 +1,11 @@
 ---
 published: true
+description: >-
+  When it comes to hair care I'm a big believer in the less is more approach. I
+  get a haircut maybe twice a year when the length starts to bug me, and I don't
+  use a lot of products. Maybe one of these days I'll actually get haircuts
+  regularly, but for now, I let it grow out until I start craving a change, and
+  then I'll chop it or color it. Sometimes both.
 ---
 Pictures coming soon!
 
