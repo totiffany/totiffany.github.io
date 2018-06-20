@@ -9,13 +9,19 @@ If you step onto U.S. soil you have the right to seek asylum, but the Trump Admi
 
 Between October 2017 and May 2018, at least 2,700 children have been split from their parents at the border. 1,995 of them were separated over just the last six weeks of that window. This means an average of 45 children are being taken from their parents each day. 
 
-This situation is every parent's worst nightmare and has naturally struck a nerve. There must be a solution that allows for more compassion, we cried. Families must stay together. Children need their parents. 
+It's every parent's worst nightmare. Meg Conley, writer and mother of 3 articulated it perfectly. 
 
-The public's outrage pushed the president to sign an executive order yesterday. It specifies that families can be held together in immigrant detention centers as their cases are being processed. It was a relief, and a step in the right direction, but there is still much to be done. 
+"Have you ever lost your child for just a moment? Around the corner in a grocery store? Or in a little crowd of people in a big place? You know that panicked feeling? The one that thickens your throat and pulses in your fingertips? The one you’re feeling as you call out your child’s name over and over again. Louder and louder until finally their head bobs up near the oranges, or their hand grabs yours from behind? Imagine that feeling. For months. In a place you cannot leave, where you cannot easily access a phone and you do not speak the language."
+
+There must be a solution that allows for more compassion, we cried. Families must stay together. Children need their parents. 
+
+The public's outrage finally pushed the president to sign an executive order yesterday. It specifies that families can be held together in immigrant detention centers as their cases are being processed. It was a relief, and a step in the right direction, but there is still much to be done. 
 
 Everyone seeking asylum will still be prosecuted. Thousands of children need to be reunited with their parents. 
 
-The situation is so horrifying it would be easy to go numb and ignore it. But educating ourselves is imperative. These people love their children as much as we love ours, and they need our help. Brian and I have donated to the ___ which provides legal counsel to those seeking asylum. I encourage you to do the same and to read through 
+Brian and I have donated to the ___ which provides legal counsel to those seeking asylum. I encourage you to do the same and to read through 
+
+
 
 [This article from Vox](https://www.vox.com/2018/6/11/17443198/children-immigrant-families-separated-parents) that explains exactly what has been going on at the border. 
 
