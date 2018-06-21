@@ -13,7 +13,7 @@ My heart is hurting this week for all of the children being separated from their
 
 First a bit of background about what has been going on. I'm going to keep this simple and straightforward, but I encourage you to learn more with the links I've included near the end of this post. 
 
-The majority of people we are hearing about crossing the border are seeking asylum in the United States. Asylum means the right to live in another country for people who have to leave their native country as a refugee. In many cases situation at home for these families is so dangerous, fleeing to the United States to seek asylum is their only option. 
+The majority of people we are hearing about crossing the border are seeking asylum in the United States. Asylum means the right to live in another country for people who have to leave their native country as a refugee. In many cases the situation at home for these families is so dangerous and violent, fleeing to the United States to seek asylum is their only option. 
 
 If you step onto U.S. soil you have the right to seek asylum, but the Trump Administration is enforcing a "zero-tolerance" policy against people crossing the border. This means everyone gets prosecuted for illegal entry. In this process, parents are being taken to federal court and their children are taken from them.
 
