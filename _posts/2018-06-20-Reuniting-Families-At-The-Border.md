@@ -27,7 +27,7 @@ With Congress at a standstill the president finally signed an executive order ye
 
 So here's what you can do. First, read more about it. This situation is so horrifying it can be easy to get overwhelmed and tune out entirely, but that doesn't help anyone. We must educate ourselves. Here are a few resources I've found to be helpful. 
 
-[This article from Vox](https://www.vox.com/2018/6/11/17443198/children-immigrant-families-separated-parents) that explains exactly what has been going on at the border. 
+[This article from Vox](https://www.vox.com/2018/6/11/17443198/children-immigrant-families-separated-parents) that explains exactly what has been happening at the border. 
 
 [This Washinton Post article](https://www.washingtonpost.com/opinions/laura-bush-separating-children-from-their-parents-at-the-border-breaks-my-heart/2018/06/17/f2df517a-7287-11e8-9780-b1dd6a09b549_story.html?utm_term=.1caf80385988) written by former first lady Laura Bush that insists a zero tolerance immigration policy is not the answer. 
 
