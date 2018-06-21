@@ -13,7 +13,9 @@ Between October 2017 and May 2018, [at least 2,700 children have been split from
 
 It's every parent's worst nightmare and the public was outraged. Senators were called, letters were written, money was donated. There must be a solution that allows for more compassion, we cried. Families must stay together. Children need their parents. 
 
-Both parties presented bills to address the border crisis in Congress that were shut down by the other party. After dismissing the legislative proposal shut down by Republicans, Senate Democratic Leader Charles Schumer argued that it was our President's responsibility to fix. 
+Something I haven't seen covered in the news as much is that BOTH parties presented bills to address the border crisis in Congress, but both were shut down by the other party. Instead of focusing on families and how to address the crises, our Congress refused to compromise and support bills presented by the other party. 
+
+After dismissing the legislative proposal shut down by Republicans, Senate Democratic Leader Charles Schumer argued that it was our President's responsibility to fix. 
 
 With Congress stalled the president finally signed an executive order yesterday. It specifies that families can be held together in immigrant detention centers as their cases are being processed. It was a relief and a step in the right direction. This is what happens when we raise our voices! 
 
