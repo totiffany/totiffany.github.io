@@ -31,7 +31,7 @@ So here's what you can do. First, read more about it. This situation is so horri
 
 [This Washinton Post article](https://www.washingtonpost.com/opinions/laura-bush-separating-children-from-their-parents-at-the-border-breaks-my-heart/2018/06/17/f2df517a-7287-11e8-9780-b1dd6a09b549_story.html?utm_term=.1caf80385988) written by former first lady Laura Bush that insists a zero tolerance immigration policy is not the answer. 
 
-[This powerful Twitter thread](https://twitter.com/petit_elefant/status/1008131022280519680)that illustrates how difficult immigration can be even when you are highly connected and educated. 
+[This powerful Twitter thread](https://twitter.com/petit_elefant/status/1008131022280519680) that illustrates how difficult immigration can be even when you are highly connected and educated. 
 
 [This beautiful article by Meg Conley](https://medium.com/s/story/suffer-little-children-8a204503eb9e) that articulates the sacrifices mothers are willing to make for their children. 
 
