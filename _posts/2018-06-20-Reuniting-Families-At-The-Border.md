@@ -11,11 +11,15 @@ If you step onto U.S. soil you have the right to seek asylum, but the Trump Admi
 
 Between October 2017 and May 2018, [at least 2,700 children have been split from their parents at the border](https://www.vox.com/2018/6/11/17443198/children-immigrant-families-separated-parents). 1,995 of them were separated over just the last six weeks of that window. This means an average of 45 children are being taken from their parents each day. 
 
-It's every parent's worst nightmare and the news has caused outrage among Americans. Over the past we called our senators demanding change and money was donated to charities who are working to reuinite familes. There must be a solution that allows for more compassion, we cried. Families must stay together. Children need their parents. 
+It's every parent's worst nightmare and the news has caused outrage among Americans. Over the past week we called our senators demanding change and money has been donated to charities working to reuinite familes. There must be a solution that allows for more compassion, we cried. Families must stay together. Children need their parents. 
 
-Something I haven't seen covered in the news as much is that BOTH parties presented bills to address the border crisis in Congress, but both were shut down by the opposing party. This means that instead of working to address the crises as a unified government, Democrats refused to support a bill presented by Republicans and vice versa. 
+Something I haven't seen covered in the news as much is that BOTH parties of Congress presented bills to address the border crisis, but both were shut down by the opposing party. This means that instead of working to address the crises as a unified government, Democrats refused to support a bill presented by Republicans and vice versa. Can you believe it? 
 
-With Congress at a standstill the president finally signed an executive order yesterday which specifies that families can be held together in immigrant detention centers as their cases are being processed. It was a relief and a step in the right direction. But there is still so much to be done. Thousands of children need to be reunited with their parents, yet [the government has no plan for reuniting them](https://www.vox.com/2018/6/20/17484300/read-trump-executive-order-family-separation-immigration-full-text). And everyone seeking asylum will still be prosecuted. 
+With Congress at a standstill the president finally signed an executive order yesterday which specifies that families can be held together in immigrant detention centers as their cases are being processed. It was a relief, and a step in the right direction, but there is still so much to be done. Thousands of children need to be reunited with their parents, yet [the government has no plan for reuniting them](https://www.vox.com/2018/6/20/17484300/read-trump-executive-order-family-separation-immigration-full-text). And everyone seeking asylum will still be prosecuted. 
+
+So here's what you can do. First, read more about what is going on. The situation is so horrifying it can be easy to be overwhelmed with  despair and tune out entirely, but that doesn't help anyone. Educating ourselves is imperative. 
+
+Second, if you have the means please consider donating to charities that working to reuinite families. Many of these charities provide free legal services to get these families back together. 
 
 Brian and I have donated to RAICES, the largest immigration legal services provider in Texas which provides legal counsel to those seeking asylum. If you have the means I encourage you to do the same. Every donation counts!
 
