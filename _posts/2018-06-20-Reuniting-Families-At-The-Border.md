@@ -11,7 +11,9 @@ If you step onto U.S. soil you have the right to seek asylum, but the Trump Admi
 
 Between October 2017 and May 2018, [at least 2,700 children have been split from their parents at the border](https://www.vox.com/2018/6/11/17443198/children-immigrant-families-separated-parents). 1,995 of them were separated over just the last six weeks of that window. This means an average of 45 children are being taken from their parents each day. 
 
-It's every parent's worst nightmare and the public was outraged. Senators were called, letters were written, money was donated. There must be a solution that allows for more compassion, we cried. Families must stay together. Children need their parents. 
+It's every parent's worst nightmare and the news has caused outrage among Americans. Over the past week we pushed congress to act. 
+
+Senators were called, letters were written, money was donated. There must be a solution that allows for more compassion, we cried. Families must stay together. Children need their parents. 
 
 Something I haven't seen covered in the news as much is that BOTH parties presented bills to address the border crisis in Congress, but both were shut down by the other party. Instead of focusing on families and how to address the crises, our Congress refused to compromise and support bills presented by the other party. 
 
