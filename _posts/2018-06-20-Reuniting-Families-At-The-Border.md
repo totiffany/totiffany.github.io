@@ -9,7 +9,7 @@ description: >-
   devastating to me. I'd like to use what little influence I have to shed some
   light on the situation.
 ---
-My heart is hurting this week for all of the children who are being separated from their parents at the U.S. and Mexico border. I normally like to write about lighter, uplifting topics, but it would feel remiss not to discuss this. A big part of what I write about is motherhood and my own relationship with my daughter, and thinking about what these families are going through is devastating to me. I'd like to use what little influence I have to shed some light on the situation. 
+My heart is hurting this week for all of the children being separated from their parents at the U.S. and Mexico border. I normally like to write about lighter, uplifting topics, but it would feel remiss not to discuss this. A big part of what I write about is motherhood and my own relationship with my daughter, and thinking about what these families are going through is devastating to me. I'd like to use what little influence I have to shed some light on the situation. 
 
 First a bit of background about what has been going on. I'm going to keep this simple and straightforward, but I encourage you to learn more with the links I've included near the end of this post. 
 
