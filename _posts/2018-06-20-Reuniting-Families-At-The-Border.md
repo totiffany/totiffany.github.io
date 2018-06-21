@@ -21,7 +21,7 @@ Between October 2017 and May 2018, [at least 2,700 children have been split from
 
 It's every parent's worst nightmare and the news has caused outrage among Americans. Over the past week we demanded change. There must be a solution that allows for more compassion, we cried. Families must stay together. Children need their parents. 
 
-Something I haven't seen covered in the news as much, but I'd like to quickly highlight, is that BOTH parties of Congress presented bills to address the crisis, but both were shut down by the opposing party. So instead of working to address this horrible crisis as a unified government, it became about politics. Democrats refused to support a bill presented by Republicans and vice versa. I was shocked to learn this. 
+Something I haven't seen covered in the news as much, but I'd like to quickly highlight, is that BOTH parties of Congress presented bills to address the crisis, but both were shut down by the opposing party. So instead of working to address this as a unified government, it became about politics. Democrats refused to support a bill presented by Republicans and vice versa. This was shocking to me.
 
 With Congress at a standstill the president finally signed an executive order yesterday that specifies families can be held together in immigrant detention centers as their cases are being processed. It was a relief, and a step in the right direction, but there is still so much to be done. Thousands of children need to be reunited with their parents, yet [the government has no plan for reuniting them](https://www.vox.com/2018/6/20/17484300/read-trump-executive-order-family-separation-immigration-full-text). And everyone seeking asylum will still be prosecuted. 
 
@@ -29,13 +29,13 @@ So here's what you can do. First, read more about it. This situation is so horri
 
 [This article from Vox](https://www.vox.com/2018/6/11/17443198/children-immigrant-families-separated-parents) that explains exactly what has been going on at the border. 
 
+[This Washinton Post article](https://www.washingtonpost.com/opinions/laura-bush-separating-children-from-their-parents-at-the-border-breaks-my-heart/2018/06/17/f2df517a-7287-11e8-9780-b1dd6a09b549_story.html?utm_term=.1caf80385988) written by former first lady Laura Bush that insists a zero tolerance immigration policy is not the answer. 
+
 [This powerful Twitter thread](https://twitter.com/petit_elefant/status/1008131022280519680)that illustrates how difficult immigration can be even when you are highly connected and educated. 
 
 [This beautiful article by Meg Conley](https://medium.com/s/story/suffer-little-children-8a204503eb9e) that articulates the sacrifices mothers are willing to make for their children. 
 
-[This Washinton Post article](https://www.washingtonpost.com/opinions/laura-bush-separating-children-from-their-parents-at-the-border-breaks-my-heart/2018/06/17/f2df517a-7287-11e8-9780-b1dd6a09b549_story.html?utm_term=.1caf80385988) written by former first lady Laura Bush that insists a zero tolerance immigration policy is not the answer. 
-
-Second, if you have the means please consider donating to charities that working to reuinite families. Many of these charities provide free legal services to get these families back together. 
+Second, if you have the means please consider donating to charities that are working to reuinite families. Many of these charities provide free legal services to get these families back together. 
 
 Brian and I have donated to RAICES, the largest immigration legal services provider in Texas which provides legal counsel to those seeking asylum. If you are interested in learning about other ways to donate, [this article provides a great list](https://slate.com/news-and-politics/2018/06/how-you-can-fight-family-separation-at-the-border.html). Every donation counts!
 
