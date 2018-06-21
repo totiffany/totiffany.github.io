@@ -17,7 +17,7 @@ The majority of people we are hearing about crossing the border are seeking asyl
 
 If you step onto U.S. soil you have the right to seek asylum, but the Trump Administration is enforcing a "zero-tolerance" policy against people crossing the border. This means everyone gets prosecuted for illegal entry. In this process, parents are being taken to federal court and their children are taken from them.
 
-Between April 19 and May 31, [nearly 2000 children were been split from their parents at the border](https://www.npr.org/2018/06/16/620451012/dhs-nearly-2-000-children-separated-from-adults-at-border-in-six-weeks). Which means an average of 45 children were being taken from their parents each day. 
+Between April 19 and May 31, [nearly 2000 children were split from their parents at the border](https://www.npr.org/2018/06/16/620451012/dhs-nearly-2-000-children-separated-from-adults-at-border-in-six-weeks). Which means an average of 45 children were being taken from their parents each day. 
 
 It's every parent's worst nightmare, and the news has caused outrage among Americans. Over the past week we demanded a solution that allows for more compassion. Families must stay together. Children need their parents. 
 
