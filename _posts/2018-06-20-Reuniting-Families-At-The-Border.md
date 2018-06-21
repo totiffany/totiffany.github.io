@@ -21,11 +21,11 @@ Between October 2017 and May 2018, [at least 2,700 children have been split from
 
 It's every parent's worst nightmare, and the news has caused outrage among Americans. Over the past week we demanded change. There must be a solution that allows for more compassion, we cried. Families must stay together. Children need their parents. 
 
-Something I haven't seen covered in the news as much, but I'd like to quickly highlight, is that [BOTH parties of Congress presented bills to address the crisis, but both were shut down by the opposing party](http://thehill.com/homenews/senate/393069-schumer-rejects-gop-proposal-to-address-border-crisis). So instead of working to address this as a unified government, it became about politics and loyalty to party. 
+Something I haven't seen covered in the news as much, but I'd like to quickly highlight, is that [BOTH parties of Congress presented bills to address the crisis, but both were shut down by the opposing party](http://thehill.com/homenews/senate/393069-schumer-rejects-gop-proposal-to-address-border-crisis). Democrats refused to support a bill presented by Republicans and vice versa. So instead of working to address this as a unified government, it became about politics and loyalty to party. 
 
 With Congress at a standstill the president finally signed an executive order yesterday that specifies families can be held together in immigrant detention centers as their cases are being processed. It was a relief, and a step in the right direction, but there is still so much to be done. Thousands of children need to be reunited with their parents, yet [the government has no plan for reuniting them](https://www.vox.com/2018/6/20/17484300/read-trump-executive-order-family-separation-immigration-full-text). And everyone seeking asylum will still be prosecuted. 
 
-So here's what you can do. First, read more about it. This situation is so horrifying it can be easy to be overwhelmed with despair and tune out entirely, but that doesn't help anyone. Educating ourselves is imperative. Here are a few resources I've found helpful. 
+So here's what you can do. First, read more about it. This situation is so horrifying it can be easy to get overwhelmed and tune out entirely, but that doesn't help anyone. We must educate ourselves. Here are a few resources I've found to be helpful. 
 
 [This article from Vox](https://www.vox.com/2018/6/11/17443198/children-immigrant-families-separated-parents) that explains exactly what has been going on at the border. 
 
@@ -37,6 +37,6 @@ So here's what you can do. First, read more about it. This situation is so horri
 
 Second, if you have the means please consider donating to charities that are working to reuinite families. Many of these charities provide free legal services to get these families back together. 
 
-Brian and I have donated to RAICES, the largest immigration legal services provider in Texas which provides legal counsel to those seeking asylum. If you are interested in learning about other ways to donate, [this article provides a great list](https://slate.com/news-and-politics/2018/06/how-you-can-fight-family-separation-at-the-border.html). Every donation counts!
+I've chosen to donate to [RAICES](https://actionnetwork.org/fundraising/leafund), the largest immigration legal services provider in Texas which provides legal counsel to those seeking asylum. [You can also donate here](https://actionnetwork.org/fundraising/leafund). If you are interested in learning about other ways you can help, [this article provides a great list](https://slate.com/news-and-politics/2018/06/how-you-can-fight-family-separation-at-the-border.html). Every donation counts!
 
 Let's make our voices heard. This is not ok. 
