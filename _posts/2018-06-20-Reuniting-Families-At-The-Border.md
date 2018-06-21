@@ -11,7 +11,7 @@ description: >-
 ---
 My heart is hurting this week for all of the children who are being separated from their parents at the U.S. and Mexico border. I normally like to write about lighter, uplifting topics, but it would feel remiss not to discuss this. A big part of what I write about is motherhood and my own relationship with my daughter, and thinking about what these families are going through is devastating to me. I'd like to use what little influence I have to shed some light on the situation. 
 
-First a bit of background about what is going on. I'm going to keep this simple and straightforward, but I encourage you to learn more with the links I've included near the end of this post. 
+First a bit of background about what has been going on. I'm going to keep this simple and straightforward, but I encourage you to learn more with the links I've included near the end of this post. 
 
 The majority of people crossing the border are seeking asylum from gang and cartel violence. In most cases, the situation at home is so dangerous, fleeing to the United States to seek asylum is their only option. Asylum means the right to live in another country for people who have to leave their native country as a refugee. 
 
