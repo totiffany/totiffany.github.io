@@ -35,7 +35,7 @@ So here's what you can do. First, read more about it. This situation is so horri
 
 [This beautiful article by Meg Conley](https://medium.com/s/story/suffer-little-children-8a204503eb9e) articulates the sacrifices mothers are willing to make for their children. 
 
-Second, if you have the means please consider donating to a charity that is working to reunite families. I've chosen to donate to [RAICES](https://actionnetwork.org/fundraising/leafund), the largest immigration legal services provider in Texas which provides legal counsel to those seeking asylum. [You can also donate here](https://actionnetwork.org/fundraising/leafund). Every donation counts!
+Second, if you have the means please consider donating to a charity that is working to reunite families. I've chosen to donate to [RAICES](https://actionnetwork.org/fundraising/leafund), the largest immigration legal services provider in Texas which provides legal counsel to those seeking asylum. [You can also donate here](https://actionnetwork.org/fundraising/leafund).
 
 If you are interested in learning about other ways you can help, [this article provides a great list](https://slate.com/news-and-politics/2018/06/how-you-can-fight-family-separation-at-the-border.html). 
 
