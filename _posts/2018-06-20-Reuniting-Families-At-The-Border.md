@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 description: >-
   My heart is hurting this week for all of the children who are being separated
   from their parents at the U.S. and Mexico border. I normally like to write
