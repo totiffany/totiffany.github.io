@@ -27,13 +27,13 @@ With Congress at a standstill the president finally signed an executive order ye
 
 So here's what you can do. First, read more about it. This situation is so horrifying it can be easy to get overwhelmed and tune out entirely, but that doesn't help anyone. We must educate ourselves. Here are a few resources I've found to be helpful. 
 
-[This article from Vox](https://www.vox.com/2018/6/11/17443198/children-immigrant-families-separated-parents) that explains exactly what has been happening at the border. 
+[This article from Vox](https://www.vox.com/2018/6/11/17443198/children-immigrant-families-separated-parents) explains exactly what has been happening at the border. 
 
 [This Washinton Post article](https://www.washingtonpost.com/opinions/laura-bush-separating-children-from-their-parents-at-the-border-breaks-my-heart/2018/06/17/f2df517a-7287-11e8-9780-b1dd6a09b549_story.html?utm_term=.1caf80385988) written by former first lady Laura Bush that insists a zero tolerance immigration policy is not the answer. 
 
-[This powerful Twitter thread](https://twitter.com/petit_elefant/status/1008131022280519680) that illustrates how difficult immigration can be even when you are highly connected and educated. 
+[This powerful Twitter thread](https://twitter.com/petit_elefant/status/1008131022280519680) illustrates how difficult immigration can be even when you are highly connected and educated. 
 
-[This beautiful article by Meg Conley](https://medium.com/s/story/suffer-little-children-8a204503eb9e) that articulates the sacrifices mothers are willing to make for their children. 
+[This beautiful article by Meg Conley](https://medium.com/s/story/suffer-little-children-8a204503eb9e) articulates the sacrifices mothers are willing to make for their children. 
 
 Second, if you have the means please consider donating to a charity that is working to reunite families. I've chosen to donate to [RAICES](https://actionnetwork.org/fundraising/leafund), the largest immigration legal services provider in Texas which provides legal counsel to those seeking asylum. [You can also donate here](https://actionnetwork.org/fundraising/leafund). Every donation counts!
 
