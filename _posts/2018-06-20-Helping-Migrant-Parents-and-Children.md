@@ -28,3 +28,17 @@ https://www.reuters.com/article/us-usa-immigration-children-exclusive/exclusive-
 [This beautiful article by Meg Conley](https://medium.com/s/story/suffer-little-children-8a204503eb9e) that articulates the sacrifices mothers are willing to make for their children. 
 
 And last, but not least, [this article that provides a list of ways you can help](https://slate.com/news-and-politics/2018/06/how-you-can-fight-family-separation-at-the-border.html  ).
+
+https://www.reuters.com/article/us-usa-immigration-children-exclusive/exclusive-nearly-1800-families-separated-at-us-mexico-border-in-17-months-through-february-idUSKCN1J42UE
+
+https://www.reuters.com/article/us-usa-immigration-children-exclusive/exclusive-nearly-1800-families-separated-at-us-mexico-border-in-17-months-through-february-idUSKCN1J42UE
+
+http://www.raicestexas.org
+
+https://twitter.com/_megconley/status/1009187235449561088
+
+https://www.vox.com/2018/6/20/17484300/read-trump-executive-order-family-separation-immigration-full-text
+
+https://www.readingmytealeaves.com
+
+https://cupofjo.com/2018/06/family-separation-what-you-need-to-know/
