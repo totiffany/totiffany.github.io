@@ -7,17 +7,15 @@ First a bit of background. The majority of people crossing the border are seekin
 
 If you step onto U.S. soil you have the right to seek asylum, but the Trump Administration has enacted a "zero-tolerance" policy against people crossing the border. This means everyone gets prosecuted for illegal entry. In this process, parents are being taken to federal court and their children are taken from them.
 
-Between October 2017 and May 2018, at least 2,700 children have been split from their parents at the border. 1,995 of them were separated over just the last six weeks of that window. This means an average of 45 children are being taken from their parents each day. 
+Between October 2017 and May 2018, [at least 2,700 children have been split from their parents at the border](https://www.vox.com/2018/6/11/17443198/children-immigrant-families-separated-parents). 1,995 of them were separated over just the last six weeks of that window. This means an average of 45 children are being taken from their parents each day. 
 
-Being separated from your children is every parent's worst nightmare, and the stories, reports, and photos we've been seeing of the dentention centers pushed us to act. Senators were called, letters were written, money was donated. There must be a solution that allows for more compassion, we cried. Families must stay together. Children need their parents. 
+It's every parent's worst nightmare, and it pushed us to act. Senators were called, letters were written, money was donated. There must be a solution that allows for more compassion, we cried. Families must stay together. Children need their parents. 
 
 Yesterday the public's outrage finally pushed the president to sign an executive order. It specifies that families can be held together in immigrant detention centers as their cases are being processed. This is what happens when we raise our voices! 
 
-It's a relief, and a step in the right direction, but there is still so much to be done. Thousands of children need to be reunited with their parents, yet the government has no plan for reuniting these families. And everyone seeking asylum will still be prosecuted. 
+It's a relief, and a step in the right direction, but there is still so much to be done. Thousands of children need to be reunited with their parents, yet [the government has no plan for reuniting them](https://www.vox.com/2018/6/20/17484300/read-trump-executive-order-family-separation-immigration-full-text). And everyone seeking asylum will still be prosecuted. 
 
-Educating ourselves is imperative. 
-
-Brian and I have donated to the ___ which provides legal counsel to those seeking asylum. If you have the means I encourage you to do the same. Every donation counts!
+Brian and I have donated to RAICES, the largest immigration legal services provider in Texas. which provides legal counsel to those seeking asylum. If you have the means I encourage you to do the same. Every donation counts!
 
 https://www.reuters.com/article/us-usa-immigration-children-exclusive/exclusive-nearly-1800-families-separated-at-us-mexico-border-in-17-months-through-february-idUSKCN1J42UE
 
