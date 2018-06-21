@@ -19,17 +19,22 @@ With Congress at a standstill the president finally signed an executive order ye
 
 So here's what you can do. First, read more about what is going on. The situation is so horrifying it can be easy to be overwhelmed with  despair and tune out entirely, but that doesn't help anyone. Educating ourselves is imperative. 
 
+[This article from Vox](https://www.vox.com/2018/6/11/17443198/children-immigrant-families-separated-parents) explains exactly what has been going on at the border. 
+
+[This powerful Twitter thread](https://twitter.com/petit_elefant/status/1008131022280519680) illustrates how difficult immigration can be even when you are highly connected and educated. 
+
+[This beautiful article by Meg Conley](https://medium.com/s/story/suffer-little-children-8a204503eb9e) articulates the sacrifices mothers are willing to make for their children. 
+
+[This Washinton Post article](https://www.washingtonpost.com/opinions/laura-bush-separating-children-from-their-parents-at-the-border-breaks-my-heart/2018/06/17/f2df517a-7287-11e8-9780-b1dd6a09b549_story.html?utm_term=.1caf80385988) written by former first lady Laura Bush insiting a zero tolerance immigration policy is not the answer. 
+
 Second, if you have the means please consider donating to charities that working to reuinite families. Many of these charities provide free legal services to get these families back together. 
 
-Brian and I have donated to RAICES, the largest immigration legal services provider in Texas which provides legal counsel to those seeking asylum. If you have the means I encourage you to do the same. Every donation counts!
+Brian and I have donated to RAICES, the largest immigration legal services provider in Texas which provides legal counsel to those seeking asylum. If you are interested in learning about other ways to donate, [this article provides a great list of ways you can donate](https://slate.com/news-and-politics/2018/06/how-you-can-fight-family-separation-at-the-border.html). Every donation counts!
+
+Let's make our voices heard. 
 
 https://www.reuters.com/article/us-usa-immigration-children-exclusive/exclusive-nearly-1800-families-separated-at-us-mexico-border-in-17-months-through-february-idUSKCN1J42UE
 
-[This article from Vox](https://www.vox.com/2018/6/11/17443198/children-immigrant-families-separated-parents) that explains exactly what has been going on at the border. 
-
-[This powerful Twitter thread](https://twitter.com/petit_elefant/status/1008131022280519680) that illustrates how difficult immigration can be even when you are highly connected and educated. 
-
-[This beautiful article by Meg Conley](https://medium.com/s/story/suffer-little-children-8a204503eb9e) that articulates the sacrifices mothers are willing to make for their children. 
 
 And last, but not least, [this article that provides a list of ways you can help](https://slate.com/news-and-politics/2018/06/how-you-can-fight-family-separation-at-the-border.html  ).
 
