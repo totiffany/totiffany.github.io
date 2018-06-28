@@ -1,7 +1,7 @@
 ---
 published: false
 ---
-Summer is here! We're headed to Idaho this weekend for the fourth of July and I can't wait! Both mine and Brian's families live in Idaho, and it will be so fun to see everyone. Bring on the backyards, barbecues, and fireworks! 
+Summer is here! We're headed to Idaho this weekend for the fourth of July and I can't wait! Both mine and Brian's families live in Idaho, and it will be so fun to see everyone. Bring on the backyards, barbecues, and fireworks! (Basically all the wonderful suburban things we don't have in the city).
 
 Let's celebrate with some delicious smoothies. 
 
