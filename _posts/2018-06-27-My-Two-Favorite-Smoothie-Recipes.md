@@ -6,7 +6,7 @@ description: >-
   smoothies. Fun fact – My first job in college was at a Jamba Juice. Remember
   Jamba Juice?? It was all the rage when I was in high school. Green smoothies
   weren't really a thing back then, but those bright orange, red, and pink
-  smoothies (that were mostly made of sorbet) were. MMmm.
+  smoothies (that were mostly made of sorbet) were. Mmmm.
 ---
 Pictures coming soon! 
 
