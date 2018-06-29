@@ -12,7 +12,7 @@ Pictures coming soon!
 
 Summer is here! We're headed to Idaho tomorrow for the fourth of July and I can't wait. Both mine and Brian's families live in Idaho, and it will be so fun to see everyone. Bring on the barbecues and fireworks! 
 
-In addition to burgers, watermelon, lemonade, and all the other delicious foods that come with warmer days, summer really gets me in the mood for smoothies. Fun fact – My first job in college was at a Jamba Juice. Remember Jamba Juice?? It was all the rage when I was in high school. Green smoothies weren't really a thing back then, but those bright orange, red, and pink smoothies (that were mostly made of sorbet) were. MMmm. 
+In addition to burgers, watermelon, lemonade, and all the other delicious foods that come with warmer days, summer really gets me in the mood for smoothies. Fun fact – My first job in college was at a Jamba Juice. Remember Jamba Juice?? It was all the rage when I was in high school. Green smoothies weren't really a thing back then, but those bright orange, red, and pink smoothies (that were mostly made of sorbet) were. Mmmm. 
 
 I have two smoothie recipes I alternate between depending on what I'm in the mood for. The first is a pink smoothie that's great for breakfast. The oats and peanut butter give it a bit more energy than your typical all fruit smoothie. (And it's reallyyy similar to the one I used to make for myself at the end of a shift at Jamba). 
 
