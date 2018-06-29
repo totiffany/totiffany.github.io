@@ -24,15 +24,15 @@ Green Smoothie
 1 cup raw spinach or kale
 1 banana
 1 cup frozen mango
-1 tsp chia seeds
 1 cup milk
+1 tsp chia seeds
 
 Pink Smoothie
 1 cup frozen strawberries
 1 banana
-1 cup milk
 1/2 cup rolled oats
 1 TB peanut butter
+1 cup milk
 1 tsp chia seeds
 
 Blend until smooth and enjoy! If you want to get fancy, you can serve your smoothie in a bowl with toppings like chopped fruit, granola, chia seeds, and coconut shavings. Sometimes I like to eat it from a bowl because makes me feel like I'm eating ice cream, but up to you! Have a great holiday!
