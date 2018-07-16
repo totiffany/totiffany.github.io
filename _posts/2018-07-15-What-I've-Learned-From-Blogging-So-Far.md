@@ -1,5 +1,11 @@
 ---
-published: false
+published: true
+description: >-
+  I was originally going to start this out by proudly stating I haven't missed a
+  week of blogging since I started this blog, but then of course life happened.
+  After being an angel at bedtime all week, Hazel decided Thursday night (the
+  night I usually publish) to scream bloody murder and refused to go to sleep.
+  We were both up late, and there was no way a post was going out that night.
 ---
 I was originally going to start this out by proudly stating I haven't missed a week of blogging since I started this blog, but then of course life happened. After being an angel at bedtime all week, Hazel decided Thursday night (the night I usually publish) to scream bloody murder and refused to go to sleep. We were both up late, and there was no way a post was going out that night.
 
@@ -11,6 +17,4 @@ Taking photos is also way more time and effort than I realized. I love the perso
 
 Self-promotion is hard, and I'm really pretty bad at it. I enjoy writing, but I have a hard time asking people to read my blog. I do want people to read it, but I have a hard time sharing anything before I consider it to be "perfect." And not having photos up on my recent posts makes me feel like it's lacking. I keep thinking I need to let everyone know I have a new post, but then another week goes by. 
 
-So I guess all this to say is that blogging is fun, but also tough. It's a lot more work and time than I realized. Most weeks I look forward to putting my blog posts together, but some weeks I really don't feel up for it, and I'm proud of myself for writing and publishing something anyway. 
-
-
+So I guess all this to say is that blogging is fun, but also tough. It's a lot more work and time than I realized. Most weeks I look forward to putting my blog posts together, but some weeks I really don't feel up for it, and I'm proud of myself for writing and publishing something anyway.
