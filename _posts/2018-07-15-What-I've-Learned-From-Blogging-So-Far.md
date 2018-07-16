@@ -5,9 +5,9 @@ description: >-
   week of blogging since I started this blog, but then of course life happened.
   After being an angel at bedtime all week, Hazel decided Thursday night (the
   night I usually publish) to scream bloody murder and refused to go to sleep.
-  We were both up late, and there was no way a post was going out that night.
+  We were both up late, and there was no way a post was going out.
 ---
-I was originally going to start this out by proudly stating I haven't missed a week of blogging since I started this blog, but then of course life happened. After being an angel at bedtime all week, Hazel decided Thursday night (the night I usually publish) to scream bloody murder and refused to go to sleep. We were both up late, and there was no way a post was going out that night.
+I was originally going to start this out by proudly stating I haven't missed a week of blogging since I started this blog, but then of course life happened. After being an angel at bedtime all week, Hazel decided Thursday night (the night I usually publish) to scream bloody murder and refused to go to sleep. We were both up late, and there was no way a post was going out. 
 
 One of the goals I set for myself when I started this blog was to publish once a week for at least a year, and aside from this past week, I've been true to that so far. I'm curious to see if blogging is something I actually enjoy doing, and I figure I won't know that unless I really give it a go. I've started blogs in the past that I get really excited about, only to stop blogging a few months later, and I wanted to approach things differently this time. That said, once a week posts is a rule I set for myself, so I'm also giving myself permission to break that rule as needed every once in a while.
 
