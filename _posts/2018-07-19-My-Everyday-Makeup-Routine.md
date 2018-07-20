@@ -3,7 +3,7 @@ published: false
 ---
 Pictures coming soon! 
 
-I love makeup, but I only use a small handful of products each day. Brian finds it rather confusing that I enjoy watching beauty blogger videos back to back, but I tend to keep things simple when it comes to my own routine.  
+I love makeup, but I only use a small handful of products each day. Brian finds it rather funny that I enjoy watching beauty blogger videos back to back, but I tend to keep things simple when it comes to my own routine.  
 
 I think one reason I'm drawn to beauty bloggers because I never really figured out how to do my makeup when I was growing up. At that time the goal was to get your skin looking as matte as possible, and any kind of shine was quickly blotted out with lots and lots of powder.  And like so many of my peers my eyebrows were the victims of over tweezing and I failed spectacularly at attempting the trendy smoky eye. Years later – I'm still growing my eyebrows back in, and I tend to avoid eyeliner and eyeshadow altogether. 
 
