@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 Pictures coming soon! 
 
@@ -24,7 +24,3 @@ Years later – I'm still growing my eyebrows back in, and I tend to avoid eyeli
 Lip colors. I couldn't choose just one for this category! If I'm being honest use [Burt's Bees chapstick](https://www.amazon.com/gp/product/B00076TOUO/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B00076TOUO&linkCode=as2&tag=redletterda04-20&linkId=b5df0be9276ac5ca57636f669522df89) more than anything else, but when I want a bit of color I reach for the Glossier Generation G in Cake. It's more of a tinted lip balm, so you don't have to be precise with the application, and the color is really similar to my natural lip color so it doesn't look too heavy. If I want to get a bit fancy my favorite lip color right now is the [Wet n' Wild Velvet Matte Lip Pencil in Hickory Smoked](https://www.wetnwildbeauty.com/lips/lip-color/naked-protest-velvet-matte-lip-color.html) It's the perfect rosy red. (I'm not sure why, but I can only find these at select Walgreens).
 
 That's it! I hope this was a fun read. Do you have a makeup product you swear by? I'd love to hear them!
-
-
-
-
