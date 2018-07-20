@@ -10,7 +10,7 @@ Pictures coming soon!
 
 I love makeup, but I tend to keep things simple for my everyday routine, and only use a handful of products. Brian has mentioned to me he finds it confusing how much I enjoy watching beauty blogger videos back to back, but rarely do I apply the full face of makeup they do in their tutorials.  
 
-I think one reason I think I'm drawn to beauty bloggers is I never really figured out how to do my makeup growing up. At that time the goal was to get your skin looking as matte as possible. Any kind of shine was quickly blotted out with lots and lots of powder. Like so many of my peers, my eyebrows were the victims of over tweezing, and I failed at attempting the trendy "smoky eye." 
+I think one reason I'm drawn to beauty bloggers is I never really figured out how to do my makeup growing up. At that time the goal was to get your skin looking as matte as possible. Any kind of shine was quickly blotted out with lots and lots of powder. Like so many of my peers, my eyebrows were the victims of over tweezing, and I failed at attempting the trendy "smoky eye." 
 
 Years later – I'm still growing my eyebrows back in, and I tend to avoid eyeliner and eyeshadow altogether. But thanks to YouTube I feel like I have a much better handle on my overall makeup routine. I'm no expert by any means, but I know what I like and have found products I'm happy with. And unlike my teenage self, I'm all about the glow. You'll see this as a theme in the products I've listed below, but I love anything that gives a nice, natural sheen to the skin. 
 
