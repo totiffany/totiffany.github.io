@@ -1,5 +1,10 @@
 ---
 published: true
+description: >-
+  I love makeup, but I tend to keep things simple for my everyday routine, and
+  only use a handful of products. Brian has mentioned to me he finds it
+  confusing how much I enjoy watching beauty blogger videos back to back, but
+  rarely do I apply the full face of makeup they do in their tutorials.
 ---
 Pictures coming soon! 
 
