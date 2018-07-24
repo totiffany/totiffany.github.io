@@ -5,7 +5,10 @@ description: >-
   I’ve had to come to terms with the fact that I simply cannot get as much done
   in a day as I used to. It's been a tough reality for me to adjust to, as I've
   always taken pride in my ability to check things off a to-do list.
+image: Productivity-3.jpg
 ---
+![Productivity-3.jpg]({{site.baseurl}}/img/Productivity-3.jpg)
+
 I’ve been thinking a lot about productivity this week. Since becoming a mom I’ve had to come to terms with the fact that I simply cannot get as much done in a day as I used to. It's been a tough reality for me to adjust to, as I've always taken pride in my ability to check things off a to-do list. 
 
 I remember about a month after Hazel was born Brian went back to work. It was the first time I had her all to myself for most of the day. I was feeling good, so I tried to tidy the apartment, do the dishes, and tackle some laundry, all while taking care of my tiny newborn. By the time Brian came home the house was messier than he'd left it with piles of laundry everywhere. When I started to apologize he told me I needed me to slow down and be easier on myself. 
