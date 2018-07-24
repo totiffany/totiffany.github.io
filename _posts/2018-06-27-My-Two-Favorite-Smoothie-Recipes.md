@@ -7,8 +7,9 @@ description: >-
   Jamba Juice?? It was all the rage when I was in high school. Green smoothies
   weren't really a thing back then, but those bright orange, red, and pink
   smoothies (that were mostly made of sorbet) were. Mmmm.
+image: Smoothie-1.jpg
 ---
-Pictures coming soon! 
+![Smoothie-1.jpg]({{site.baseurl}}/img/Smoothie-1.jpg)
 
 Summer is here! We're headed to Idaho tomorrow for the fourth of July and I can't wait. Both mine and Brian's families live in Idaho, and it will be so fun to see everyone. Bring on the barbecues and fireworks! 
 
