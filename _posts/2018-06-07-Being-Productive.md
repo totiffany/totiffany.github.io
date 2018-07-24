@@ -5,7 +5,7 @@ description: >-
   I’ve had to come to terms with the fact that I simply cannot get as much done
   in a day as I used to. It's been a tough reality for me to adjust to, as I've
   always taken pride in my ability to check things off a to-do list.
-image: Productivity-4
+image: Productivity-4.jpg
 ---
 ![Productivity-4.jpg]({{site.baseurl}}/img/Productivity-4.jpg)
 
