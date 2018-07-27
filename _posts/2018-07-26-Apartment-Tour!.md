@@ -2,7 +2,7 @@
 published: false
 ---
 
-Welcome to our apartment! When we found this place we couldn't believe how spacious it was. I've mentioned this before, but our old apartment was really small – Only 311 square feet! So to us, this was an amazing upgrade. A few other perks are that it doesn't face the street, which means it's not as noisy, and the back bay window faces a green courtyard. I've also been really happy with the closets. Good storage is a must when you're living in the city!
+Welcome to our apartment! When we found this place we couldn't believe how spacious it was. I've mentioned this before, but our old apartment was really small – Only 311 square feet! So to us, this was an amazing upgrade. It also doesn't face the street, which means it's not as noisy, and the back bay window faces a green courtyard. And I've been really happy with the closets. Good storage is a must when you're living in a city!
 
 Many of the apartments in downtown San Francisco were built during the 1930's-40's, and they were made to last. There's a few key pieces of architecture you'll see in the apartments built at this time – The original hardwood floors, white hex tile in the bathrooms, tons of crown molding, and the signature bay windows. All details we love and enjoy in this apartment.
 
