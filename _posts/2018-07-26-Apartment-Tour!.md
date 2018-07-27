@@ -22,9 +22,8 @@ Moving into the bedroom, Brian and I are huge IKEA fans and that's where our bed
 
 The prints above our bed are a city map of San Francisco and NYC (where we lived for a summer after we were first married). My mom bought those for us, so I don't have a source for them. We like to keep our bedding really simple and white. I normally have a big fluffy duvet on the bed, but it's been warmer lately so we switched it out for a thinner one. The throw pillows and nightstand are old from Target. The sconces are from Urban Outfitters, and were a pain to install, but I love having a lamp to read with at night.
 
-I'm not sure how I would describe the style of our apartment. I like to keep things minimal, but I'm not afraid of color. And I don't stick to a specific color palette. We moved in just before Hazel was born and I knew I wanted our home to be a place where our baby could run around and have fun. I think you have to be flexible with the design with a baby living there. Now when we're shopping for home goods it's not just our style we have to consider, we also think about whether or not it will work with a baby at home. Nothing too fragile or delicate with sharp corners! Which is why we don't have a coffee table and probably won't get one anytime soon. 
+I think that's it! Let me know if I missed anything you'd like a source for. I'm not sure how I would describe the style of our apartment. I like to keep things minimal, but I'm not afraid of color. And I don't stick to a specific color palette. We moved in just before Hazel was born and I knew I wanted our home to be a place where our baby could run around and have fun. I think you have to be flexible with the design when you have kids at home. Overall I love our place. It feels like such a sanctuary in a busy city and we love spending time here.
 
-I think that's it! Let me know if I missed anything you'd like a source for. 
 
 
 
