@@ -1,6 +1,7 @@
 ---
 published: false
 description: "Welcome to our apartment! When we found this place we couldn't believe how spacious it was. I've mentioned this before, but our old apartment was really small –\_Only 311 square feet! So to us, this was an amazing upgrade. It also doesn't face the street, which means it's not as noisy, and the back bay window faces a green courtyard. And I've been really happy with the closets. Good storage is a must when you're living in a city!"
+image: Apartment-Tour-5.jpg
 ---
 ![Apartment-Tour-3.jpg]({{site.baseurl}}/img/Apartment-Tour-3.jpg)
 
