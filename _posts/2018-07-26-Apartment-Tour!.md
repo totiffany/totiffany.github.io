@@ -1,12 +1,11 @@
 ---
 published: true
-description: "Welcome to our apartment! When we found this place we couldn't believe how spacious it was. I've mentioned this before, but our old apartment was really small –\_Only 311 square feet! So to us, this was an amazing upgrade. It also doesn't face the street, which means it's not as noisy, and the back bay window faces a green courtyard. And I've been really happy with the closets. Good storage is a must here!"
+description: "Welcome to our apartment! When we found this place we couldn't believe how spacious it was. I've mentioned this before, but our old apartment was really small –\_Only 311 square feet! So to us, this was an amazing upgrade. A couple other things we love are it doesn't face the street, which means it's not as noisy, and the back bay window faces a green courtyard. I've also been really happy with the closet space. Good storage is a must here!"
 image: Apartment-Tour-5.jpg
 ---
 ![our apartment]({{site.baseurl}}/img/Apartment-Tour-3.jpg)
 
-
-Welcome to our apartment! When we found this place we couldn't believe how spacious it was. I've mentioned this before, but our old apartment was really small – Only 311 square feet! So to us, this was an amazing upgrade. It also doesn't face the street, which means it's not as noisy, and the back bay window faces a green courtyard. And I've been really happy with the closets. Good storage is a must here! 
+Welcome to our apartment! When we found this place we couldn't believe how spacious it was. I've mentioned this before, but our old apartment was really small – Only 311 square feet! So to us, this was an amazing upgrade. A couple other things we love are it doesn't face the street, which means it's not as noisy, and the back bay window faces a green courtyard. I've also been really happy with the closet space. Good storage is a must here! 
 
 Many of the apartments in downtown San Francisco were built during the 1930's-40's, and they were made to last. There's a few key pieces of architecture you'll see in the apartments built at this time – The original hardwood floors, white hex tile in the bathrooms, tons of crown molding, and the signature bay windows. All details we love and enjoy in this apartment.
 
@@ -16,7 +15,7 @@ I get a lot of questions about our rug, so we'll start there. It's from [Land of
 
 Brian designed the large black and white prints we have on the wall behind the couch. They turned out much bigger than I anticipated, and I wasn't too sure about covering that much of our wall space at first, but now I like them up there. Artwork is such a fun and easy way to customize your space, and we can always change it out if we're ever craving a change. 
 
-Our couch is from [Blue Dot](https://www.bludot.com/) and was one of the first things we bought when we moved in. There wasn't room for a couch at our old place, so we were really excited to have one again. I thought it would take us a long time to pick out a couch (it's a big purchase!), but Brian found this one surprisingly easily. Blue Dot has a showroom in San Francisco, so we were able to see it in person before we purchased it. Did you guys know you can negotiate a discount on furniture? That was a new experience for us, and in the end we were really happy with the price we ended up paying for it. Our dining table is from Wayfair and the chairs are from West Elm. I was worried the table and chairs wouldn't match, but the wood color is so similar they look like a set! 
+Our couch is from [Blue Dot](https://www.bludot.com/) and was one of the first things we bought when we moved in. There wasn't room for a couch at our old place, so we were really excited to have one again. I thought it would take us a long time to pick out a couch (it's a big purchase!), but Brian found this one surprisingly easily. Blue Dot has a showroom in San Francisco, so we were able to see it in person before we bought it. Did you guys know you can negotiate a discount on furniture? That was a new experience for us, and in the end we were really happy with the price we ended up paying for it. Our dining table is from Wayfair and the chairs are from West Elm. I was worried the table and chairs wouldn't match, but the wood color is so similar they look like a set! 
 
 ![Apartment-Tour-4.jpg]({{site.baseurl}}/img/Apartment-Tour-4.jpg)
 
