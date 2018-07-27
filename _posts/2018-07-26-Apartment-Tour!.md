@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 description: "Welcome to our apartment! When we found this place we couldn't believe how spacious it was. I've mentioned this before, but our old apartment was really small –\_Only 311 square feet! So to us, this was an amazing upgrade. It also doesn't face the street, which means it's not as noisy, and the back bay window faces a green courtyard. And I've been really happy with the closets. Good storage is a must when you're living in a city!"
 image: Apartment-Tour-5.jpg
 ---
@@ -32,11 +32,3 @@ Moving into the bedroom, Brian and I are huge IKEA fans and that's [where our be
 The prints above our bed are a city map of San Francisco and NYC (where we lived for a summer after we were first married). My mom bought those for us, so I don't have a source for them. We like to keep our bedding really simple and white. I normally have a big fluffy duvet on the bed, but it's been warmer lately so we switched it out for a thinner one. The throw pillows and nightstand are old from Target. The [sconces are from Urban Outfitters](https://www.urbanoutfitters.com/shop/eyeball-sconce-003?category=Lighting&color=027&quantity=1&size=ONE%20SIZE&type=REGULAR), and were a pain to install, but I love having a lamp to read with at night.
 
 I think that's it! Let me know if I missed anything. I'm not sure how I would describe the style of our apartment. I like to keep things minimal, but I'm not afraid of color. And I don't stick to a specific color palette. We moved in just before Hazel was born, and I knew I wanted our home to be a place where our baby could run around and have fun. I think you have to be flexible with the design when you have kids at home, and I love how our place turned out. It feels like such a sanctuary in the city, and we love spending time here.
-
-
-
-
-
-
-
-
