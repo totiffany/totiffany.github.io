@@ -5,7 +5,10 @@ description: >-
   feeling tired and cranky lately. We're headed to southern California for the
   long weekend to visit family, which I am really excited about, but traveling
   always stresses me out. And traveling with a baby even more so.
+image: destress-1.jpg
 ---
+![destress-1.jpg]({{site.baseurl}}/img/destress-1.jpg)
+
 The truth is, I need this blog post more than anyone this week. I've been feeling tired and cranky lately. We're headed to southern California for the long weekend to visit family, which I am really excited about, but traveling always stresses me out. And traveling with a baby even more so. I know it's a short trip, and so many people love to travel, but to me nothing about airplane travel is fun. I hate the packing, the airport, security, and the anxiety of not knowing how Hazel is going to handle the flight. We've been lucky so far, historically she's gone right to sleep, but now she's at an age where she really needs to move and I'm not sure how it's going to go. 
 
 I'd really rather be cool and chill about all this. And deep down I know it will be fine. We'll get through it. But in the meantime, I'll try taking my own advice to relax a bit. Here are five quick and easy things I like to do to keep stress at bay.  
