@@ -1,5 +1,12 @@
 ---
 published: true
+description: >-
+  Since quitting my job a few months ago Brian and I have had to rethink our
+  budget, and I've been trying to take a more thoughtful approach to how I'm
+  spending. But it seems every week there is something that tempts me to spend
+  more than I planned. Just recently there was the Amazon Prime Day sale and now
+  the Nordstrom Anniversary Sale that's wrapping up this weekend. I love a good
+  deal, but I don't love the pressure that comes with big sales to overspend.
 ---
 Since quitting my job a few months ago Brian and I have had to rethink our budget, and I've been trying to take a more thoughtful approach to how I'm spending. But it seems every week there is something that tempts me to spend more than I planned. Just recently there was the Amazon Prime Day sale and now the Nordstrom Anniversary Sale that's wrapping up this weekend. I love a good deal, but I don't love the pressure that comes with big sales to overspend.
 
