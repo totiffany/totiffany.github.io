@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 Since quitting my job a few months ago Brian and I have had to rethink our budget, and I've been trying to take a more thoughtful approach to how I'm spending. But it seems every week there is something that tempts me to spend more than I planned. Just recently there was the Amazon Prime Day sale and now the Nordstrom Anniversary Sale that's wrapping up this weekend. I love a good deal, but I don't love the pressure that comes with big sales to overspend.
 
@@ -15,4 +15,4 @@ So since money and spending habits are top of mind for me I thought I'd share so
 
 **[The Target Redcard](https://www.target.com/c/redcard/-/N-4tfyn)**. I will blab about this card to anyone who will listen. The Target Redcard lets you save 5% on every Target purchase, you get free 2 day shipping, and an extra 30 days to return items. The best part is you don't have to sign up for it as a credit card (unless you want to of course). They have a debit card option that can link up to your existing checking account. Anyone who knows me knows I am a huge Target fan, so for me, this card is gold. 
 
-Do you have any favorite apps or tools you use to save money? Let's hear them! 
+Do you have any favorite apps or tools you use to save money? Let's hear them!
