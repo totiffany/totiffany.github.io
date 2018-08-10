@@ -20,7 +20,7 @@ The class starts. The lights dim to purple. The instructor plays some music with
 
 So, naturally, without the clips my feet are flying off left and right. They can't possibly stay on with the kind of speed the instructor is pushing for, and anytime I try to slow down I nearly fall off the bike. I look around and wonder how anyone else is managing all this MOVEMENT and keeping their feet in place. 
 
-Finally around 15 minutes into class, after seeing how much I've been struggling front and center, the instructor actually gets off her bike and walks over to me. She asks me something I can't really hear. Then she kneels down grabs my foot, puts it in place, and I feel a CLICK. OH. I think. DUH. Then I snap my other foot in and enjoyed the rest of class. 
+Finally around 15 minutes into class, I'm sure after seeing how much I've been struggling, the instructor actually gets off her bike and walks over to me. She asks me something I can't really hear. Then she kneels down grabs my foot, puts it in place, and I feel a CLICK. OH. I think. DUH. Then I snap my other foot in and enjoyed the rest of class. 
 
 I thought about that experience all day. I felt mortified that the instructor had to stop what she was doing to come to help me. But then I realized that no one else in the room probably gave it a second thought. I don't know about you, but when I'm working out I'm only worried about myself. How I'm feeling, and if I'm doing everything right. 
 
