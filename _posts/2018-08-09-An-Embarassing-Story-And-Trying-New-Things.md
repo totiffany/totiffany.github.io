@@ -26,7 +26,7 @@ I thought about that experience all day. I felt mortified that the instructor ha
 
 Plus, I told myself, I did the damn thing. I tried something new. I got a great workout in while my husband and baby were asleep. And it was enough to get me to book that class again a week later.
 
-I've been re-reading one of my favorite books The Compound Effect recently. It's a quick, motivational read, but the overarching theme is **small change + time = big change**. Everyone craves the big changes in their lives; wanting to lose the weight, write a book, travel the world, but few of us are willing to really put in the TIME it takes to achieve those things. To take the small, unsexy steps towards reaching our goals over a long period of time. Sometimes years.  
+I've been re-reading one of my favorite books The Compound Effect recently. It's a quick, motivational read, but the overarching theme is **small change + time = big change**. Everyone craves the big changes in their lives; wanting to lose the weight, write a book, travel the world, but few of us are willing to really put in the TIME it takes to achieve those things. To take the small, unsexy steps towards reaching our goals.  
 
 For me, taking those first steps are usually the hardest, so I tap out before I've even begun. But I'm finally getting to a point where I'm not afraid to try new things. So what if I don't know what I'm doing? So what if I need some help? It's easy to forget the hard work and time that goes into someone reaching their goals when all we see (and envy) is the results, but everyone had to start somewhere. 
 
