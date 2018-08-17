@@ -12,7 +12,7 @@ I try to fit in some reading whenever Hazel is asleep, and occasionally, if she'
 
 I usually borrow all of the books I want to read from the library. You can save a lot of $$$ that way, and if I'm craving a re-read I'll add them to my Christmas or birthday wish lists. In fact, 3 out of the 4 books on this list came from the library! One of the best uses of our tax dollars in my opinion. Take full advantage! 
 
-So here's what I've been reading recently if you're looking for some summer reading inspiration. (Let's be honest, this is mostly just an ode to Celeste Ng). 
+So here's what I've been reading recently if you're looking for some summer reading inspiration. (Let's be honest, this is mostly just an ode to Celeste Ng's amazing writing). 
 
 [Everything I Never Told You](https://www.amazon.com/Everything-I-Never-Told-You/dp/0143127551). Once I started reading this book I couldn't put it down. It's a beautiful story about a Chinese American family, but it grips you like a murder-mystery (which it kind of is). It does have a rather tragic tone throughout it, but I found the characters fascinating. I had to know more about who they were and what was going to happen to them. The biggest takeaway for me in this novel is just how important communication is among family members. There were so many hopes, dreams, and assumptions made by the characters in this book that were never spoken out loud, and it has devastating consequences. 
 
