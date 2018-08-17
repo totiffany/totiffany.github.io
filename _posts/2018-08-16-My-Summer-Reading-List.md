@@ -1,5 +1,10 @@
 ---
 published: true
+description: >-
+  Do you love a good summer read as much as I do? During the summer months, I
+  tend to lean more towards the fiction side of things. Something about a story
+  that picks up quickly and is hard to put down aligns itself nicely to travel,
+  beaches, and the lazy days of summer.
 ---
 Do you love a good summer read as much as I do? During the summer months, I tend to lean more towards the fiction side of things. Something about a story that picks up quickly and is hard to put down aligns itself nicely to travel, beaches, and the lazy days of summer. 
 
