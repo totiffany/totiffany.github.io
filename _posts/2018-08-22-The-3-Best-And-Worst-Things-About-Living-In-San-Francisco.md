@@ -5,7 +5,7 @@ One of the first questions we get when someone from out of town learns we live i
 
 The idea of living in a city, and raising a kid here no less, can be confusing for some people. I get it. I grew up in a beautiful suburban neighborhood in Idaho. And I would agree that in a lot of ways raising a kid in suburbia is easier than it is in a city. But I also think life is better when you love where you live. I walk through this city pushing Hazel in her stroller every day, and if I spent that time focused on all the things I dislike about it I would be miserable. I don't want to live like that. I know we are lucky to be here, and I would rather enjoy it while it lasts.
 
-I often think about a vacation my family took to San Francisco when I was 12. I remember looking around at all the unique Victorian homes and thinking, "I would love to live here someday." And now I do! How cool is that? To this day, the beautiful architecture throughout this city is a pretty constant reminder of how incredible it is that we get to live here. I've been trying to take more photographs of it lately, because I know I'm going to miss it like crazy someday when we move away. 
+I often think about a vacation my family took to San Francisco when I was 12. I remember looking around at all the unique Victorian homes and thinking, "I would love to live here someday." And now I do! How cool is that? To this day, the beautiful architecture throughout this city is a pretty constant reminder of how incredible it is that we get to live here. I've been trying to [take more photographs of it lately](https://www.instagram.com/totiffany/), because I know I'm going to miss it like crazy someday when we move away. 
 
 So the short answer is yes, we do like living here. But that doesn't mean there aren't things we don't like about it. The truth is, city life is hard. Especially with a kid. I think after being in a place for a while you can kind of get used to a lot of the inconveniences, but there are some things I will never not complain about. 
 
@@ -17,9 +17,7 @@ The 3 Worst Things About Living in San Francisco:
 
 2. The cost of living. Guys. It is so, so bad. I've talked a lot about that tiny studio apartment we first moved into here, and I can't even tell you how much we were paying for that place or you will be disgusted. Let's just say if you want to feel good about what you are paying for your rent/mortgage take a look at Craigslist listings for San Francisco apartments sometime. 
 
-3. The poop. Yes, I mean actual poop. I hate that this is even a thing, but we have a poop problem in San Francisco. This city has one of the largest homeless populations in the country, and that means there’s a lot of poop on our sidewalks. You’ll just be casually walking down the street and oh no look out for the poop! It's disgusting and makes me feel bad for unsuspecting tourists. Hey there welcome to America. There's garbage everywhere and we have poop on our sidewalks. 
-
-http://time.com/5368610/san-francisco-poop-patrol-problem/
+3. The poop. Yes, I mean actual poop. I hate that this is even a thing, but [we have a poop problem in San Francisco](http://time.com/5368610/san-francisco-poop-patrol-problem/). This city has one of the largest homeless populations in the country, and that means there’s a lot of poop on our sidewalks. You’ll just be casually walking down the street and oh no look out for the poop! It's disgusting and makes me feel bad for unsuspecting tourists. Hey there welcome to America. There's garbage everywhere and we have poop on our sidewalks. 
 
 The 3 Best Things About Living in San Francisco: 
 
