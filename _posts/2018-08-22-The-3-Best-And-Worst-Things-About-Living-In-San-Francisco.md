@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 One of the first questions we get when someone from out of town learns we live in San Francisco is, "Do you like it?"
 
@@ -27,5 +27,4 @@ The 3 Best Things About Living in San Francisco:
 
 3. The resources. I’m not sure if that's the best say this one, but basically, if you want something, you can find it here. Given the tech hub that it is we have apps for food delivery, cleaning services, laundry, and transit. If you're into the arts we have broadway shows, the ballet, an opera house, and an orchestra. We went to see The Nutcracker last Christmas and it was downright magical. The sets and level of talent were mind-blowing.
 
-San Franciscans are also super into fitness, and you can find every kind of fitness class under the sun here. When I wanted to try spinning I was able to find a studio just a short walk from my apartment. We also have a free community college. Lots of my favorite brands have flagship stores here (Gap, Old Navy, Levis, Madewell). The parks and playgrounds are wonderful. Fun fact: Golden Gate Park is the biggest park in the United States! We have incredible museums and huge craft fairs. It’s not a bad place to be. 
-
+San Franciscans are also super into fitness, and you can find every kind of fitness class under the sun here. When I wanted to try spinning I was able to find a studio just a short walk from my apartment. We also have a free community college. Lots of my favorite brands have flagship stores here (Gap, Old Navy, Levis, Madewell). The parks and playgrounds are wonderful. Fun fact: Golden Gate Park is the biggest park in the United States! We have incredible museums and huge craft fairs. It’s not a bad place to be.
