@@ -1,5 +1,14 @@
 ---
 published: true
+description: >-
+  The idea of living in a city, and raising a kid here no less, can be confusing
+  for some people. I get it. I grew up in a beautiful suburban neighborhood in
+  Idaho. And I would agree that in a lot of ways raising a kid in suburbia is
+  easier than it is in a city. But I also think life is better when you love
+  where you live. I walk through this city pushing Hazel in her stroller every
+  day, and if I spent that time focused on all the things I dislike about it I
+  would be miserable. I don't want to live like that. I know we are lucky to be
+  here, and I would rather enjoy it while it lasts.
 ---
 One of the first questions we get when someone from out of town learns we live in San Francisco is, "Do you like it?"
 
