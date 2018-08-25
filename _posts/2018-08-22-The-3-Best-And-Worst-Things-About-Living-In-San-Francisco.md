@@ -26,7 +26,7 @@ The 3 Worst Things About Living in San Francisco:
 
 2. The cost of living. Guys. It is so, so bad. I've talked a lot about that tiny studio apartment we first moved into here, and I can't even tell you how much we were paying for that place or you will be disgusted. Let's just say if you want to feel good about what you are paying for your rent/mortgage take a look at Craigslist listings for San Francisco apartments sometime. 
 
-3. The poop. Yes, I mean actual poop. I hate that this is even a thing, but [we have a poop problem in San Francisco](http://time.com/5368610/san-francisco-poop-patrol-problem/). This city has one of the largest homeless populations in the country, and that means there’s a lot of poop on our sidewalks. You’ll just be casually walking down the street and oh no look out for the poop! It's disgusting and makes me feel bad for unsuspecting tourists. Hey there welcome to America. There's garbage everywhere and we have poop on our sidewalks. 
+3. The poop. Yes, I mean actual poop. I hate that this is even a thing, but [we have a poop problem in San Francisco](http://time.com/5368610/san-francisco-poop-patrol-problem/). This city has one of the largest homeless populations in the country, and that means there’s a lot of poop on our sidewalks. You’ll just be casually walking down the street and oh no look out for the poop! It's horrible and makes me feel bad for unsuspecting tourists. Hey there welcome to America. There's garbage everywhere and we have poop on our sidewalks. 
 
 The 3 Best Things About Living in San Francisco: 
 
