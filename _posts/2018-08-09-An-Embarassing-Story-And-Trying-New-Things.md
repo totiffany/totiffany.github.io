@@ -10,7 +10,7 @@ Over the past couple weeks I've been going to a spinning class. I've been wantin
 
 It's a 6am class, which we can all agree is an ungodly hour to be awake, let alone to be doing a workout. But I like that I can get it out of the way while Hazel is asleep and get home right around the time she wakes up. It means I don't miss out on any time with her and Brian. (It also means I have to take a nap later in the day when she does to make up for the lost sleep). 
 
-So here's a story about the first time I went to this class. I leave my apartment at 5:30 in the morning (ew) and walk to the studio. After being handed some shoes and showing me the lockers I'm on my own. I change my shoes, tuck away my stuff, and walk into class. 
+So here's what happened the first time I went to this class. I leave my apartment at 5:30 in the morning (ew) and walk to the studio. After being handed some shoes and showing me the lockers I'm on my own. I change my shoes, tuck away my stuff, and walk into class. 
 
 I find a bike that seems... fine. I don't really know what I'm looking for, so I think this will do. I want to be able to see the instructor, so I go for a bike on the front row. I hop on and see the other girls spinning away to warm up, so I do the same. 
 
