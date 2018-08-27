@@ -6,9 +6,7 @@ description: >-
   there aren't really any negative effects to exercise, so I settled on
   spinning. I wanted to see what all the fuss is about.
 ---
-
-
-Over the past couple weeks I've been going to a spinning class. I've been wanting to work off the last few pounds of baby weight and have heard aren't really any negative effects to exercise, so I settled on spinning. I wanted to see what all the fuss is about. 
+Over the past couple weeks I've been going to a spinning class. I've been wanting to work off the last few pounds of baby weight and hear there aren't really any negative effects to exercise, so I settled on spinning. I wanted to see what all the fuss is about. 
 
 It's a 6am class, which we can all agree is an ungodly hour to be awake, let alone to be doing a workout. But I like that I can get it out of the way while Hazel is asleep and get home right around the time she wakes up. It means I don't miss out on any time with her and Brian. (It also means I have to take a nap later in the day when she does to make up for the lost sleep). 
 
