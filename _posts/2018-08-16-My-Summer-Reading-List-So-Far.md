@@ -5,6 +5,7 @@ description: >-
   tend to lean more towards the fiction side of things. Something about a story
   that picks up quickly and is hard to put down aligns itself nicely to travel,
   beaches, and the lazy days of summer.
+image: Summer-Reading-List-1.jpg
 ---
 ![Summer-Reading-List-1.jpg]({{site.baseurl}}/img/Summer-Reading-List-1.jpg)
 
