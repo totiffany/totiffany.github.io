@@ -6,6 +6,8 @@ description: >-
   that picks up quickly and is hard to put down aligns itself nicely to travel,
   beaches, and the lazy days of summer.
 ---
+![Summer-Reading-List-1.jpg]({{site.baseurl}}/img/Summer-Reading-List-1.jpg)
+
 Do you love a good summer read as much as I do? During the summer months, I tend to lean more towards the fiction side of things. Something about a great story that pulls you in quickly aligns itself nicely to travel, beaches, and the lazy days of summer. 
 
 I try to fit in some reading whenever Hazel is asleep, and occasionally, if she'll let me, while she's awake and playing with her toys in the living room. I figure it's a step above scrolling mindlessly on my phone, and I like to think its influenced her fascination with books. Recently she's been trying to pull the bigger books off the bookshelf that Brian and I use. I finally let her play with one of my used paperbacks the other day, and she flipped through it for 20 minutes!
