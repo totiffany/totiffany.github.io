@@ -11,6 +11,7 @@ description: >-
   things I dislike about it I would be miserable. I don't want to live like
   that. I know we are lucky to be here, and I would rather enjoy it while it
   lasts.
+image: San-Francisco-Victorian-3.jpg
 ---
 ![San-Francisco-Victorian-3.jpg]({{site.baseurl}}/img/San-Francisco-Victorian-3.jpg)
 
