@@ -1,5 +1,6 @@
 ---
 published: true
+description: "The fact that August has come to an end makes my head spin. Where did the summer go? While I'll always get excited about the fall and all the cliches it brings (crunchy leaves! hot chocolate! sweaters!), I love summer and this one went by too quickly. However, the weather this past month has been full-blown San Francisco –\_Cloudy, foggy, sometimes cold, and windy. The nicer weather usually shows up around here in the fall. It's confusing for my wardrobe. I crave wearing sweaters in September and October, but most of the time I'm melting in a t-shirt."
 ---
 The fact that August has come to an end makes my head spin. Where did the summer go? While I'll always get excited about the fall and all the cliches it brings (crunchy leaves! hot chocolate! sweaters!), I love summer and this one went by too quickly. However, the weather this past month has been full-blown San Francisco – Cloudy, foggy, sometimes cold, and windy. The nicer weather usually shows up around here in the fall. It's confusing for my wardrobe. I crave wearing sweaters in September and October, but most of the time I'm melting in a t-shirt. 
 
