@@ -1,17 +1,12 @@
 ---
 published: false
 ---
-Weekday routine with a toddler: 15+ months
-Our Favorite baby books
-Top 10 gifts for baby + expecting parents
-What’s in my diaper bag
-
 We've had a pretty solid routine with Hazel since she was around 8 months old. The key for us was getting her naps into a predictable schedule, which took us longer than I would have liked, but she's always been stubborn about naps. She used to take two of them but recently switched to one nap in the afternoon. I miss having two breaks during the day, but her being awake for a longer stretch of time allows us to get out of the apartment more. Plus now that she's only taking one nap she doesn't protest the sleep as much.
 
 I'm sharing our typical everyday routine, but things are usually more flexible on the weekends. We're often out most of the day on Saturday and Sunday. Fortunately, Hazel has always been good about sleeping on the go in her car seat and stroller. I figure any amount of sleep she gets is good for her little growing body and just take it as it comes! 
 
 8:00pm-7:00am Hazel sleeps
-Around 5 months we started trying to work with Hazel to sleep through the night. You can read more about that here. Since then, she’s been a great sleeper and typically wakes up around 7am. Once she's awake we bring her into bed with us and give her a bottle (we recently switched from formula to cow’s milk). Sometimes she’ll fall back asleep, but most of the time she won’t, and after letting her roll around in bed for a while we all get up. 
+Around 5 months we started trying to work with Hazel to sleep through the night. You can read more about that [here](https://redletterdayblog.com/Our-Closet-Nursery-+-Sleeping-Tips!). Since then, she’s been a great sleeper and typically wakes up around 7am. Once she's awake we bring her into bed with us and give her a bottle (we recently switched from formula to cow’s milk). Sometimes she’ll fall back asleep, but most of the time she won’t, and after letting her roll around in bed for a while we all get up. 
 
 7:30am-8:00am Breakfast
 We put Hazel in her high chair in the kitchen to snack on a few things while one of us makes breakfast. She usually eats a banana or some other fruit and Cheerios. Mine and Brian's typical breakfast these days is peanut butter and banana toast or fried eggs. Hazel loves eggs, so we often make them for all of us. 
