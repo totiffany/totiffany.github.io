@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 description: >-
   We've had a pretty solid routine with Hazel since she was around 8 months old.
   The key for us was getting her naps into a predictable schedule, which took us
@@ -45,9 +45,4 @@ We call this Hazel's second dinner. Even if she ate a lot earlier she likes to e
 7:30-8:00 Bedtime Routine 
 Our bedtime routine is pretty straightforward. We change her into pajamas, feed her a bottle, brush her teeth as best we can, sing a few songs, give her a kiss, and place her in her crib. 
 
-And that’s it! It's not always as rigid as this schedule makes it out to be, but this is essentially what happens. For example, on Wednesday this week we had friends over until around 1:30pm, so Hazel ate and napped later than she usually does. But we do try to stick to a routine as much as possible. I have found that having a routine that's predictable is helpful for her mood and my overall productivity during the day. 
-
-
-
-
-
+And that’s it! It's not always as rigid as this schedule makes it out to be, but this is essentially what happens. For example, on Wednesday this week we had friends over until around 1:30pm, so Hazel ate and napped later than she usually does. But we do try to stick to a routine as much as possible. I have found that having a routine that's predictable is helpful for her mood and my overall productivity during the day.
