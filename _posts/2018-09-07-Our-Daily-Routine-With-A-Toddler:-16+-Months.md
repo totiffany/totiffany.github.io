@@ -1,5 +1,13 @@
 ---
 published: false
+description: >-
+  We've had a pretty solid routine with Hazel since she was around 8 months old.
+  The key for us was getting her naps into a predictable schedule, which took us
+  longer than I would have liked, but she's always been stubborn about naps. She
+  used to take two of them but recently switched to one nap in the afternoon. I
+  miss having two breaks during the day, but her being awake for a longer
+  stretch of time allows us to get out of the apartment more. Plus now that
+  she's only taking one nap she doesn't protest the sleep as much.
 ---
 We've had a pretty solid routine with Hazel since she was around 8 months old. The key for us was getting her naps into a predictable schedule, which took us longer than I would have liked, but she's always been stubborn about naps. She used to take two of them but recently switched to one nap in the afternoon. I miss having two breaks during the day, but her being awake for a longer stretch of time allows us to get out of the apartment more. Plus now that she's only taking one nap she doesn't protest the sleep as much.
 
