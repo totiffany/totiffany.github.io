@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 description: >-
   At the end of this month, Brian and I will have been married for 6 years.
   Sometimes I feel like we got married yesterday, but then I think about
@@ -24,4 +24,4 @@ On a similar note, Brian knew sooner than I did that he wanted to get married. I
 
 When I was trying to make my mind up about it I tried to think about what would happen if we were to break up. I knew we would both eventually move on with our lives and find different people to love, but I realized I didn't like thinking about that. I hated the thought of him with someone else and me left wondering where life had taken him without me. Just because our love story didn't fit what I always imagined for myself didn't mean that it wasn't good, solid, real love. 
 
-6 years later, and as you can probably gather, I'm really happy I decided to get married! Brian and I love spending time together, still never run out of things to talk about, and dream of working together in the future. Best of all we have a beautiful baby that we love and adore. Life is good. It is so very good. Here's to 6 wonderful years! 
+6 years later, and as you can probably gather, I'm really happy I decided to get married! Brian and I love spending time together, still never run out of things to talk about, and dream of working together in the future. Best of all we have a beautiful baby that we love and adore. Life is good. It is so very good. Here's to 6 wonderful years!
