@@ -18,9 +18,7 @@ If an engagement did get broken off several states had laws that allowed women t
 
 Well, it's hard to imagine now, but at that time there happened to be an influx of diamonds in the diamond industry. Seeing an opportunity, the De Beers diamond company launched a campaign to boost sales. Their advertising agencies got a few celebrities to wear flashy rings on the red carpet and movies soon featured engagement scenes with diamond rings. The idea caught on pretty quickly – A guy gives a girl an expensive ring (which does have a romantic charm to it), and she has something of value she can keep if he breaks up with her. 
 
-In today's culture, it's sort of ridiculous to think a man would need a way to ensure his fiancé won't be ruined by having sex with him. But that's essentially the reason why we expect a diamond ring when a guy pops the question. 
-
-It's a fascinating story, but after I learned it I felt duped. The only reason I felt I needed a diamond was because an advertising agency from decades ago made me feel that way! Why didn't I question where this tradition before I got married??
+It's a fascinating story, but after I learned it I felt duped. The only reason I felt I needed a diamond was because an advertising agency from decades ago made me feel that way! Why didn't I question where this tradition before I got married?? In today's culture, it's sort of ridiculous to think a man would need a way to ensure his fiancé won't be ruined by having sex with him. But that's essentially the reason why we expect a diamond ring when a guy pops the question.
 
 I do feel fortunate that Brian didn't spend an extravagant amount on my ring. It was a lot for us at the time, but we were poor college students. My ring is simple, but I like that it represents where we were at in our lives when we bought it. For some reason, the oval + halo + plain band combination I wanted was surprisingly hard to find, so Brian ended up drawing a sketch of it and had it custom made. Which makes me like it even more. 
 
