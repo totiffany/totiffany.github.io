@@ -28,4 +28,4 @@ I still like wedding rings for a few practical reasons. It's a symbol, universal
 
 One tradition we did forgo – The wedding band. I didn't feel a need to wear two rings when one does the job just fine. And I certainly didn't want to pay more for it. 
 
-So now I'm curious – Does knowing more about the history of engagement rings make you feel differently about it? Did you forgo tradition and do your own thing for your engagement ring? 
+So now I'm curious – Does knowing more about the history of engagement rings make you feel differently about it? Did you forgo tradition and do your own thing for your engagement ring?
