@@ -16,7 +16,7 @@ While wedding bands have been around for a while (historians believe ancient Egy
 
 If an engagement did get broken off several states had laws that allowed women to sue for "breach of promise to marry." Suing ensured she would be ok financially for a while, but the laws were starting to be done away with. Which raised the question, if a woman couldn't sue what could she do to protect herself?
 
-Well, it's hard to imagine it now, but at that time there happened to be an influx of diamonds in the diamond industry. Seeing an opportunity, the De Beers diamond company launched a campaign to boost sales. Their advertising agencies got a few celebrities to wear flashy rings on the red carpet and movies soon featured engagement scenes with diamond rings. The idea caught on pretty quickly – A guy gives a girl an expensive ring (which does have a romantic charm to it), and she has something of value she can keep if he breaks up with her. 
+Well, it's hard to imagine now, but at that time there happened to be an influx of diamonds in the diamond industry. Seeing an opportunity, the De Beers diamond company launched a campaign to boost sales. Their advertising agencies got a few celebrities to wear flashy rings on the red carpet and movies soon featured engagement scenes with diamond rings. The idea caught on pretty quickly – A guy gives a girl an expensive ring (which does have a romantic charm to it), and she has something of value she can keep if he breaks up with her. 
 
 In today's culture, it's sort of ridiculous to think a man would need a way to ensure his fiancé won't be ruined by having sex with him. But that's essentially the reason why we expect a diamond ring when a guy pops the question. 
 
