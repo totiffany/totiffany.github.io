@@ -22,7 +22,7 @@ It's a fascinating story, but after I learned it I felt duped. The only reason I
 
 I do feel fortunate that Brian didn't spend an extravagant amount on my ring. It was a lot for us at the time, but we were poor college students. My ring is simple, but I like that it represents where we were at in our lives when we bought it. For some reason, the oval + halo + plain band combination I wanted was surprisingly hard to find, so Brian ended up drawing a sketch of it and had it custom made. Which makes me like it even more. 
 
-I still like wedding rings for a few practical reasons. It's a symbol, universally understood, that lets people know you're committed to someone else. I also like that when I look at my ring it reminds me of Brian and our history together. But knowing what I know now, I would have been alright if we had saved the money or had done something else with it. I could have used a ring I already owned for my engagement ring or chosen a less-expensive, non-traditional stone.
+I still think wedding rings are a good idea for practical reasons. It's a symbol, universally understood, that lets people know you're committed to someone else. I also like that when I look at my ring it reminds me of Brian and our history together. But knowing what I know now, I would have been alright if we had saved the money or had done something else with it. I could have used a ring I already owned for my engagement ring or chosen a less-expensive, non-traditional stone.
 
 One tradition we did forgo – The wedding band. I didn't feel a need to wear two rings when one does the job just fine. And I certainly didn't want to pay more for it. 
 
