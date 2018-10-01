@@ -1,5 +1,11 @@
 ---
 published: false
+description: >-
+  Six years. We got married 6 years ago. It feels like just yesterday, but then
+  I think about all the things that have happened over the last 6 years and I
+  can kind of believe it. We've lived in three states and five apartments. I've
+  worked at three different companies. Brian has worked at four. And best of
+  all, we had Hazel.
 ---
 Six years. We got married 6 years ago. It feels like just yesterday, but then I think about all the things that have happened over the last 6 years and I can kind of believe it. We've lived in three states and five apartments. I've worked at three different companies. Brian has worked at four. And best of all, we had Hazel. 
 
