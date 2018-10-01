@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 description: >-
   Six years. We got married 6 years ago. It feels like just yesterday, but then
   I think about all the things that have happened over the last 6 years and I
@@ -17,4 +17,4 @@ I've heard the first year of marriage is the hardest, but that wasn't true for u
 
 So how are we celebrating 6 years? With a family trip to NYC! We spent a summer there when we were first married and have been meaning to go back ever since. I've been planning everything and am so excited for all of us to spend some time together in that beautiful city. 
 
-Here's to marriage and feeling loved! I'm excited to see what the next 6 years have in store for us and all the years after that. 
+Here's to marriage and feeling loved! I'm excited to see what the next 6 years have in store for us and all the years after that.
