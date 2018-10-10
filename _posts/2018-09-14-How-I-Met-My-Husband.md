@@ -2,9 +2,12 @@
 published: true
 description: >-
   At the end of this month, Brian and I will have been married for 6 years.
-  Sometimes I feel like we got married yesterday, but then I think about
-  everything that has happened between now and then and it actually feels like a
-  lifetime ago.
+  Seeing as how it's our anniversary month I thought it might be fun to share
+  the story of how we met. I remember having this idea of how it would feel to
+  fall in love and find the person I wanted to marry long before I met Brian,
+  and it turned out to be quite different from what I expected. I thought it
+  would be a whirlwind, lots of butterflies, love at first sight type stuff, but
+  instead, it was much more gradual.
 ---
 At the end of this month, Brian and I will have been married for 6 years. Seeing as how it's our anniversary month I thought it might be fun to share the story of how we met. I remember having this idea of how it would feel to fall in love and find the person I wanted to marry long before I met Brian, and it turned out to be quite different from what I expected. I thought it would be a whirlwind, lots of butterflies, love at first sight type stuff, but instead, it was much more gradual.
 
