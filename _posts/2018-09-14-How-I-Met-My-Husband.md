@@ -6,9 +6,7 @@ description: >-
   everything that has happened between now and then and it actually feels like a
   lifetime ago.
 ---
-At the end of this month, Brian and I will have been married for 6 years. Sometimes I feel like we got married yesterday, but then I think about everything that has happened between now and then and it actually feels like a lifetime ago. 
-
-Seeing as how it's our anniversary month I thought it might be fun to share the story of how we met. I remember having this idea of how it would feel to fall in love and find the person I wanted to marry long before I met Brian, and it turned out to be quite different from what I expected. I thought it would be a whirlwind, lots of butterflies, love at first sight type stuff, but instead, it was much more gradual.
+At the end of this month, Brian and I will have been married for 6 years. Seeing as how it's our anniversary month I thought it might be fun to share the story of how we met. I remember having this idea of how it would feel to fall in love and find the person I wanted to marry long before I met Brian, and it turned out to be quite different from what I expected. I thought it would be a whirlwind, lots of butterflies, love at first sight type stuff, but instead, it was much more gradual.
 
 I only vaguely remember meeting Brian for the first time. He came over with a friend to my apartment (his friend knew my roommate). But I was so tired that night we only talked for a few minutes before I went back to bed. Neither of us really remember the conversation, but Brian does remember me not being very talkative and thinking I was a snob. Ha. 
 
