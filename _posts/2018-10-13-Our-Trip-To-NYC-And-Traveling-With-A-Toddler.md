@@ -1,5 +1,13 @@
 ---
 published: false
+description: >-
+  On Tuesday we got back from our vacation to NYC. We've been talking about
+  going for forever, and this was the year we finally made it happen! But as a
+  heads up I'm going to spend 10% of this post talking about the fun stuff we
+  did and the other 90% talking about what it was like to travel with a
+  17-month-old toddler. Because while I want to be the cool mom who travels a
+  lot with her kids, right now I'm feeling a little terrified to get on a plane
+  again.
 ---
 On Tuesday we got back from our vacation to NYC. We've been talking about going for forever, and this was the year we finally made it happen! But as a heads up I'm going to spend 10% of this post talking about the fun stuff we did and the other 90% talking about what it was like to travel with a 17-month-old toddler. Because while I want to be the cool mom who travels a lot with her kids, right now I'm feeling a little terrified to get on a plane again. 
 
