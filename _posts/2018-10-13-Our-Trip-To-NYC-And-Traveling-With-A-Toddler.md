@@ -3,13 +3,13 @@ published: true
 description: >-
   On Tuesday we got back from our vacation to NYC. We've been talking about
   going for forever, and this was the year we finally made it happen! But as a
-  heads up I'm going to spend 10% of this post talking about the fun stuff we
-  did and the other 90% talking about what it was like to travel with a
+  heads up I'm going to spend about 10% of this post talking about the fun stuff
+  we did and the other 90% talking about what it was like to travel with a
   17-month-old toddler. Because while I want to be the cool mom who travels a
   lot with her kids, right now I'm feeling a little terrified to get on a plane
   again.
 ---
-On Tuesday we got back from our vacation to NYC. We've been talking about going for forever, and this was the year we finally made it happen! But as a heads up I'm going to spend 10% of this post talking about the fun stuff we did and the other 90% talking about what it was like to travel with a 17-month-old toddler. Because while I want to be the cool mom who travels a lot with her kids, right now I'm feeling a little terrified to get on a plane again. 
+On Tuesday we got back from our vacation to NYC. We've been talking about going for forever, and this was the year we finally made it happen! But as a heads up I'm going to spend about 10% of this post talking about the fun stuff we did and the other 90% talking about what it was like to travel with a 17-month-old toddler. Because while I want to be the cool mom who travels a lot with her kids, right now I'm feeling a little terrified to get on a plane again. 
 
 So first the highlights. My favorite part was meeting up with some of our old friends. One of my cousins and her husband even came to visit us all the way from D.C. and got to meet Hazel for the first time. The pizza and pastries in NYC are still excellent. I got to eat the cronut again at Dominique Ansel's bakery. You guys know [I'm a huge fan of Glossier](https://redletterdayblog.com/My-Everyday-Makeup-Routine), and we were able to visit their showroom in Soho. We explored a lot of Central Park and found playgrounds everywhere we went for Hazel to run around on. So it was a good trip, and I'm glad we went, but I gotta say, traveling with a toddler is not for the faint of heart. (Which is me. I'm pretty sure after this trip I am the faint of heart).
 
