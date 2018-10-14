@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 description: >-
   On Tuesday we got back from our vacation to NYC. We've been talking about
   going for forever, and this was the year we finally made it happen! But as a
@@ -31,4 +31,4 @@ Speaking of, bring lots of snacks! Whenever Hazel started to get fussy food was 
 
 So there you have it! Like I said, we had some good moments, but we are all really grateful to be home. Right after we got back Hazel fell asleep without a fuss and has snapped right back to her usual, happy self. So maybe she's just a homebody? I don't know. 
 
-Any tips you'd share for traveling with a toddler? I'm especially interested in knowing how you get them to fall asleep on their own when you're traveling. Do tell! 
+Any tips you'd share for traveling with a toddler? I'm especially interested in knowing how you get them to fall asleep on their own when you're traveling. Do tell!
