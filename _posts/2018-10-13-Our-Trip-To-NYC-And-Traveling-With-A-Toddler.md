@@ -29,6 +29,6 @@ For plane travel, I read a few tips from other moms and tried to arm myself with
 
 Speaking of, bring lots of snacks! Whenever Hazel started to get fussy food was usually a great distraction. We did a grocery store run shortly after we arrived, so we could eat breakfast at the apartment and have lots of healthy snacks on hand while we were out. [These were a big hit](https://www.amazon.com/gp/product/B001CTO0YA/ref=oh_aui_detailpage_o00_s00?ie=UTF8&psc=1) with her, and I'm happy with the ingredients. 
 
-So there you have it! Like I said, we had some good moments, but we are all really grateful to be home. Right after we got back Hazel fell asleep without a fuss and has snapped right back to her usual, happy self. So maybe she's just a homebody? I don't know. 
+So there you have it! Like I said, we had some good moments, but we are all really grateful to be home. Right after we got back Hazel fell asleep without a fuss and has gone right back to her usual, happy self. So maybe she's just a homebody? I don't know. 
 
 Any tips you'd share for traveling with a toddler? I'm especially interested in knowing how you get them to fall asleep on their own when you're traveling. Do tell!
