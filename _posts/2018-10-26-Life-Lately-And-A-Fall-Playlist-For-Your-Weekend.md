@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 description: >-
   I know things have been quiet on the blog this past month. I'll be honest I've
   been feeling a little overwhelmed lately. As you can probably tell from the
@@ -17,7 +17,7 @@ image: IMG_3675.JPG
 
 Fancy seeing you here. In a pumpkin patch in October. How very unexpected. 
 
-I know things have been quiet on the blog this past month. I'll be honest I've been feeling a little overwhelmed lately. As you can probably tell from [the tone of my last post](https://redletterdayblog.com/Our-Trip-To-NYC-And-Traveling-With-A-Toddler), this new stage with Hazel is a tough one, and it's wearing on me. Most days I feel like I can't get anything done, and whenever I try to she usually yells at me demanding my full attention. It doesn't even have to be something productive. I can't go to the bathroom without her pounding at the door and loudly protesting that I come back out. She's at that transition where she's so close to being more independent, but still very much a baby. She wants to be by my side most of the day, and as much as I love her, it can be mind-numbing and exhausting to keep her entertained all day. 
+I know things have been quiet on my blog this past month. I'll be honest I've been feeling a little overwhelmed lately. As you can probably tell from [the tone of my last post](https://redletterdayblog.com/Our-Trip-To-NYC-And-Traveling-With-A-Toddler), this new stage with Hazel is a tough one, and it's wearing on me. Most days I feel like I can't get anything done, and whenever I try to she usually yells at me demanding my full attention. It doesn't even have to be something productive. I can't go to the bathroom without her pounding at the door and loudly protesting that I come back out. She's at that transition where she's so close to being more independent, but still very much a baby. She wants to be by my side most of the day, and as much as I love her, it can be mind-numbing and exhausting to keep her entertained all day. 
 
 However, over the past couple of days there have been a few moments where she's played on her own and given me a few minutes to myself. It felt like a glimpse into my future when she will actually entertain herself without needing me to watch her constantly. That's actually what I remember most from my childhood – Playing with my brother and sister all day without really knowing or caring where my mom was. That is, until we started fighting or one of us got hurt. But these are the early years, and the early years are more demanding of mom. I get that. But that doesn't make me any less tired. 
 
