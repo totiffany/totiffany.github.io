@@ -1,5 +1,17 @@
 ---
 published: false
+description: >-
+  I know things have been quiet on the blog this past month. I'll be honest I've
+  been feeling a little overwhelmed lately. As you can probably tell from the
+  tone of my last post, this new stage with Hazel is a tough one, and it's
+  wearing on me. Most days I feel like I can't get anything done, and whenever I
+  try to she usually yells at me demanding my full attention. It doesn't even
+  have to be something productive. I can't go to the bathroom without her
+  pounding at the door and loudly protesting that I come back out. She's at that
+  transition where she's so close to being more independent, but still very much
+  a baby. She wants to be by my side most of the day, and as much as I love her,
+  it can be mind-numbing and exhausting to keep her entertained all day.
+image: IMG_3675.JPG
 ---
 ![IMG_3675.JPG]({{site.baseurl}}/img/IMG_3675.JPG)
 
