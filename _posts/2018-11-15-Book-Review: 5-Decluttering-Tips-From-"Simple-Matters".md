@@ -1,5 +1,11 @@
 ---
 published: false
+description: >-
+  About every 6 months or so I pick up a new book to read about organizing and
+  decluttering. Living in a one-bedroom apartment means space is limited, so I'm
+  always looking for new tips on how to clear out and keep everything looking
+  and feeling tidy.
+image: 0-1.jpg
 ---
 ![0-1.jpg]({{site.baseurl}}/img/0-1.jpg)
 
