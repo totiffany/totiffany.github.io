@@ -1,9 +1,11 @@
 ---
 published: false
 ---
+![0-1.jpg]({{site.baseurl}}/img/0-1.jpg)
+
 About every 6 months or so I pick up a new book to read about organizing and decluttering. Living in a one-bedroom apartment means space is limited, so I'm always looking for new tips on how to clear out and keep everything looking and feeling tidy. 
 
-While some of the advice I've read over the years hasn't stuck (ahem... capsule wardrobes), I'd say most of the principals have improved our lives for the better. Keeping our apartment, even down to the closets, cleared out and organized actually makes me feel better. Which makes sense – Studies have shown that more stuff causes us more stress, anxiety, and less happiness. Whereas having more order gives us more time and peace of mind.  
+While some of the advice I've read over the years hasn't stuck (ahem... [capsule wardrobes](https://redletterdayblog.com/What-I-Learned-From-Trying-A-Capsule-Wardrobe)), I'd say most of the principals have improved our lives for the better. Keeping our apartment, even down to the closets, cleared out and organized actually makes me feel better. Which makes sense – Studies have shown that more stuff causes us more stress, anxiety, and less happiness. Whereas having more order gives us more time and peace of mind.  
 
 The latest book I read on the topic was, "Simple Matters" by Erin Boyle. Erin is a blogger at readingmytealeaves.com, and she lives in a one-bedroom apartment in New York City with her husband and daughter. Keeping things tidy in her own home is important to her too, and she likes everything she owns to be beautiful and serve a purpose. As with all of this genre of books, there are tips I'll take and tips that I don't think will work their way into my own lifestyle, but here are the ones that stuck with me. 
 
@@ -17,4 +19,4 @@ The latest book I read on the topic was, "Simple Matters" by Erin Boyle. Erin is
 
 5. On cleaning your home more naturally. This section of the book was fascinating to me. After sharing some scary research on the number of synthetic chemicals found in typical cleaning supplies, Erin shares a more natural approach to cleaning. Her cleaning arsenal mostly consists of different mixtures of water, baking soda, white vinegar, essential oils, and coconut oil. I'm really intrigued by her glass cleaner: Equal parts white vinegar and water combined with a few drops of citrus essential oil. There's no way that works as well as Windex, right? I'm really curious to find out. 
 
-If you do pick up this book I will say it falls into the more extreme side of clearing out and decorating. The pictures Erin includes are beautiful, but her apartment feels pretty sparse and empty to me. She's upfront about her love for all things neutral and definitely falls into the minimal, neutral-aesthetic side of things. Personally, I like my home to feel playful and inviting, and for me, that means lots of color. But to each their own. Overall, it was a great read. I'm feeling inspired and excited to incorporate some of these tips into my own home. 
+If you do pick up this book I will say it falls into the more extreme side of clearing out and decorating. The pictures Erin includes are beautiful, but her apartment feels pretty sparse and empty to me. She's upfront about her love for all things neutral and definitely falls into [the minimal, neutral-aesthetic side of things](https://redletterdayblog.com/4-Things-I-Dislike-About-Minimalism). Personally, I like my home to feel playful and inviting, and for me, that means lots of color. But to each their own. Overall, it was a great read. I'm feeling inspired and excited to incorporate some of these tips into my own home.
