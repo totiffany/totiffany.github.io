@@ -7,9 +7,9 @@ description: >-
   Brian, and it turned out to be quite different from what I expected. I thought
   it would be a whirlwind, lots of butterflies, love at first sight type stuff,
   but instead, it was much more gradual.
-image: 10-18 Tiffany-Red.jpg
+image: null
 ---
-![10-18 Tiffany-Red.jpg]({{site.baseurl}}/img/10-18 Tiffany-Red.jpg)
+
 
 Seeing as how it's our anniversary month I thought it might be fun to share the story of how Brian and I met. I remember having this idea of how it would feel to fall in love and find the person I wanted to marry long before I met Brian, and it turned out to be quite different from what I expected. I thought it would be a whirlwind, lots of butterflies, love at first sight type stuff, but instead, it was much more gradual.
 
