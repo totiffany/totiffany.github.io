@@ -6,7 +6,10 @@ description: >-
   can kind of believe it. We've lived in three states and five apartments. I've
   worked at three different companies. Brian has worked at four. And best of
   all, we had Hazel.
+image: anniversary.jpg
 ---
+![anniversary.jpg]({{site.baseurl}}/img/anniversary.jpg)
+
 Six years. We got married 6 years ago. It feels like just yesterday, but then I think about all the things that have happened over the last 6 years and I can kind of believe it. We've lived in three states and five apartments. I've worked at three different companies. Brian has worked at four. And best of all, we had Hazel. 
 
 On the day of our anniversary this year, Hazel and I were dancing when the song Unconditionally by Katy Perry came on. I don't normally have an emotional reaction to mainstream pop songs, but while I was singing along with the lyrics I almost started to cry. There's a line in the chorus that says, "There is no fear now. Let go and just be free. I will love you unconditionally." And I thought that is exactly how I feel about my marriage!
