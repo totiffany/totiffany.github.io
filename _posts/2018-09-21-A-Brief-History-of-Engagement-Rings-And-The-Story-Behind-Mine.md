@@ -9,9 +9,9 @@ description: >-
   proposes you get a ring. Your friends and family ooh and ahh over it. That's
   the way it's done, right? Well, here's a little about where that tradition
   comes from...
-image: ring.jpg
+image: rings2.jpg
 ---
-![ring.jpg]({{site.baseurl}}/img/ring.jpg)
+![rings2.jpg]({{site.baseurl}}/img/rings2.jpg)
 
 Keeping on the theme of mine and Brian's anniversary coming up, today I want to talk about engagement rings. Have you ever thought about why we expect a diamond ring when a guy proposes? It wasn't until after I got married that I learned that engagement rings, as we know them today, are a fairly recent phenomenon. Before that, I didn't give it a second thought. When a guy proposes you get a ring. Your friends and family ooh and ahh over it. That's the way it's done, right? Well, here's a little about where that tradition comes from...
 
