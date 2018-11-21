@@ -8,15 +8,15 @@ description: >-
   17-month-old toddler. Because while I want to be the cool mom who travels a
   lot with her kids, right now I'm feeling a little terrified to get on a plane
   again.
-image: IMG_3605.jpg
+image: New-York1.jpg
 ---
-![IMG_3605.jpg]({{site.baseurl}}/img/IMG_3605.jpg)
+![New-York1.jpg]({{site.baseurl}}/img/New-York1.jpg)
 
 On Tuesday we got back from our vacation to NYC. We've been talking about going for forever, and this was the year we finally made it happen! But as a heads up I'm going to spend about 10% of this post talking about the fun stuff we did and the other 90% talking about what it was like to travel with a 17-month-old toddler. Because while I want to be the cool mom who travels a lot with her kids, right now I'm feeling a little terrified to get on a plane again. 
 
 So first the highlights. My favorite part was meeting up with some of our old friends. One of my cousins and her husband even came to visit us all the way from D.C. and got to meet Hazel for the first time. The pizza and pastries in NYC are still excellent. I ate [the cronut again at Dominique Ansel's bakery](https://www.buzzfeed.com/arielknutson/everything-you-need-to-know-about-the-cronut). You guys know [I'm a huge fan of Glossier](https://redletterdayblog.com/My-Everyday-Makeup-Routine), and we were able to visit their showroom in Soho. We explored a lot of Central Park and found playgrounds everywhere we went for Hazel to run around on. So it was a good trip, and I'm glad we went, but I gotta say, traveling with a toddler is not for the faint of heart. (Which is me. I'm pretty sure after this trip I am the faint of heart).
 
-![IMG_3604.jpg]({{site.baseurl}}/img/IMG_3604.jpg)
+![New-York2.jpg]({{site.baseurl}}/img/New-York2.jpg)
 
 This was the longest, biggest trip we've been on with Hazel so far, and parts of it were just really hard. I think it was a combination of the time change, how much we tried to pack into each day, and her schedule just generally being off, but she was not her usual, happy self. 
 
@@ -26,7 +26,7 @@ Then there was the trip itself. It's a 3 hour time change, which I knew wouldn't
 
 I will say she was great about taking naps in her stroller while we were out, which I'm super grateful for, but bedtime was a different story. She's usually an angel at bedtime, but on this trip, she refused to fall asleep on her own and would only go down if we were holding her. This meant bedtime could take a lot longer than we were used to, and there were a couple nights that were particularly hard. 
 
-![IMG_3602.jpg]({{site.baseurl}}/img/IMG_3602.jpg)
+![New-York3.jpg]({{site.baseurl}}/img/New-York3.jpg)
 
 So what did I learn from all this? If I had to do it over again I would probably have planned less and allowed for more flexibility in our schedule, which is what we ended up doing anyway. I tried to plan full days so we could see as much as possible, but Hazel just couldn't do it. She tired of her stroller quickly, and we ended up spending a lot more time than I thought we would hanging out at a park or back at the apartment so she could do her thing. We may not have gotten to everything on our list, but letting her out when she needed a break helped all of us stay sane.
 
