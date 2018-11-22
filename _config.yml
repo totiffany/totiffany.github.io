@@ -3,6 +3,11 @@ markdown: kramdown
 permalink: /:title
 github: [metadata]
 
+# Pagination
+plugins: [jekyll-paginate]
+paginate: 5
+paginate_path: "page:num/"
+
 # jekyll-seo-tag plugin stuff
 plugins:
     - jekyll-seo-tag
@@ -14,3 +19,4 @@ social:
   links:
     - https://www.instagram.com/totiffany
     - https://www.etsy.com/people/totiffanyann
+
