@@ -1,5 +1,11 @@
 ---
 published: false
+description: >-
+  When it comes to holiday gift giving I try to keep things simple. The key word
+  being _try_. My recent read of Simple Matters has made me think more about
+  giving gifts that are useful, edible, or experiences. So I'm trying to lean
+  more that way, but it's really easy to get caught up in all the sales and
+  shiny things this time of year and go over budget.
 ---
 When it comes to holiday gift giving I try to keep things simple. The key word being _try_. My recent read of [Simple Matters](https://redletterdayblog.com/Book-Review-5-Decluttering-Tips-From-Simple-Matters) has made me think more about giving gifts that are useful, edible, or experiences. I'm trying to lean more that way, but it's really easy to get caught up in all the sales and shiny things this time of year and go over budget. 
 
