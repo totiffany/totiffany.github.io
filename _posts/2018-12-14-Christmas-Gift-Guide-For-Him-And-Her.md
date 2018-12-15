@@ -1,11 +1,11 @@
 ---
 published: false
 ---
-When it comes to holiday gift giving I try to keep things simple. The key word being _try_. My recent read of [Simple Matters](https://redletterdayblog.com/Book-Review-5-Decluttering-Tips-From-Simple-Matters) has got me thinking more about giving gifts that are useful, edible, or experiences. So I'm trying to lean more that way this year. 
+When it comes to holiday gift giving I try to keep things simple. The key word being _try_. My recent read of [Simple Matters](https://redletterdayblog.com/Book-Review-5-Decluttering-Tips-From-Simple-Matters) has got me thinking more about giving gifts that are useful, edible, or experiences. So I'm trying to lean more that way, but it's easy to get caught up in all the sales and shiny things this time of year. 
 
 One way I do manage to keep things simple? Brian and I don't exchange gifts over Christmas. I know that will sound crazy to some, but over the years we've found we just don't feel a need to exchange gifts. With all events and shopping and general craziness that comes in December, we don't enjoy the extra stress that comes from finding each other the perfect gift. Instead, we exchange small gifts for birthdays and that works for us. So take that for what it's worth. 
 
-For everyone else in my life I've put together a guide below with a few things I think might make good gifts. I've found it's always been a little easier to shop for the women in my life. I can just buy them a bunch of my favorite things! Guys are tricker. 
+For everyone else in my life I've put together a guide below with a few things I think might make good gifts. I've found it's always a little easier to shop for the women in my life. I can just buy them a bunch of my favorite things! Guys are tricker. 
 
 I don't have a gift guide for kids listed here because honestly, at a year and a half, I don't think Hazel needs much. I let my parents know she loves airplanes, the moon, stars, books, and that we could always use more clothes for her, and called it good. She already has plenty of toys, and we need to make sure whatever she's given can fit in our suitcase on the flight home. So with all that said, let's get to it!  
 
