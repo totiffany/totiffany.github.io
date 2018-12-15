@@ -13,7 +13,7 @@ One way I do manage to keep things simple – Brian and I don't exchange Christm
 
 For everyone else in my life I've put together a guide below with a few things I think might make good gifts. I've found it's always a little easier to shop for the women in my life. I can just buy them a bunch of my favorite things! Guys are tricker. 
 
-I don't have a gift guide for kids listed here because honestly, at a year and a half, I don't think Hazel needs much. I let my parents know she loves airplanes, the moon, stars, books, and that we could always use more clothes for her, and called it good. She already has plenty of toys, and we have to make sure whatever she's given can fit in our suitcase on the flight home. So with all that said, let's get to it!  
+I don't have a gift guide for kids listed here because honestly, at a year-and-a-half, I don't think Hazel needs much. I let my parents know she loves airplanes, the moon, stars, books, and that we could always use more clothes for her, and called it good. She already has plenty of toys, and we have to make sure whatever she's given can fit in our suitcase on the flight home. So with all that said, let's get to it!  
 
 For Him 
 
