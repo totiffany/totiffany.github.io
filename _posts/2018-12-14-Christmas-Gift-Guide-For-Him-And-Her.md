@@ -1,23 +1,13 @@
 ---
 published: false
 ---
-When it comes to holiday gift giving I try to keep things simple. The key word being try. My recent read of Simple Matters does have me thinking more about giving gifts that are useful, edible, or experiences. So I'm trying to lean more that way this year. 
+When it comes to holiday gift giving I try to keep things simple. The key word being _try_. My recent read of [Simple Matters](https://redletterdayblog.com/Book-Review-5-Decluttering-Tips-From-Simple-Matters) has got me thinking more about giving gifts that are useful, edible, or experiences. So I'm trying to lean more that way this year. 
 
-One way I do manage to keep things simple? Brian and I don't exchange gifts over Christmas. I know that will sound crazy to some, but over the years we've found we just don't feel a need to exchange gifts. With all events and shopping and general craziness that comes in December, we don't enjoy the extra stress that comes from finding each other the perfect gift. Instead, we exchange small gifts for birthdays and have found that works for us. So take that for what it's worth. 
+One way I do manage to keep things simple? Brian and I don't exchange gifts over Christmas. I know that will sound crazy to some, but over the years we've found we just don't feel a need to exchange gifts. With all events and shopping and general craziness that comes in December, we don't enjoy the extra stress that comes from finding each other the perfect gift. Instead, we exchange small gifts for birthdays and that works for us. So take that for what it's worth. 
 
-For everyone else in my life I've put together a gift guide of a few things, I've enjoyed buying for the people in my life. I've found it's always been a little easier to shop for the women in my life. I can just buy them a bunch of my favorite things! Guys are tricker. 
+For everyone else in my life I've put together a guide below with a few things I think might make good gifts. I've found it's always been a little easier to shop for the women in my life. I can just buy them a bunch of my favorite things! Guys are tricker. 
 
-I don't have a gift guide for kids listed here because honestly, at a year and a half, I don't think Hazel needs much. I let my parents know she loves airplanes, the moon, stars, books, and that we could always use more clothes for her, and called it good. She already has plenty of toys, and we need to make sure whatever she's given can fit in our suitcase on the flight home. So with all that said let's get to it! 
-
-For Her
-
-Skincare is always a good bet. You guys know I love Glossier, and their face wash and priming moisturizing rich are just the best. They also have some great gift sets this time of year. On the more budget-friendly side of things, I love this rosewater spray for a daily pick-me-up (I put it on first thing in the morning), and this face oil is one of my all-time favs. 
-
-Books are a great option as well. I've gifted Gretchen Rubin's The Happiness Project and Better Than Before on several occasions, but you also can't go wrong with a great fiction read. For that, I love anything by Liane Moriarty (What Alice Forgot and Big Little Lies are a couple of my favorites) and Celeste Ng (Little Fires Everywhere and Everything I Never Told You). 
-
-I think comfy loungewear is an excellent gift, and I'm obsessed with the joggers from Gap. They're incredibly soft, and if I'm at home, I'm wearing these. Clothing-wise I think the new Universal Thread line at Target is really cute. And anything from Madewell is sure to be a hit. I love browsing their accessories section for gift ideas this time of year. 
-
-I'm not big into jewelry these days, but my favorite Etsy shop for simple, minimal jewelry is Mia & Mac. I bought my sister one of their initial necklaces a few years ago and it's one of her favorites. 
+I don't have a gift guide for kids listed here because honestly, at a year and a half, I don't think Hazel needs much. I let my parents know she loves airplanes, the moon, stars, books, and that we could always use more clothes for her, and called it good. She already has plenty of toys, and we need to make sure whatever she's given can fit in our suitcase on the flight home. So with all that said, let's get to it!  
 
 For Him 
 
@@ -34,6 +24,16 @@ The Google home mini is cute and practical, and I love the price point.
 It's pricier, but I love gifting tickets to a concert or class or something more on the experience side of things. For father's day this year I surprised Brian with tickets to Arcade Fire. It's something out of the ordinary and makes for a fun date night. 
 
 Call me boring, but I always find that a nice pair of socks makes for a great gift. They're nice, practical, and will definitely get used. My favorite ones to get for the guys in my life are from j.crew factory or Uniqlo. 
+
+For Her
+
+Skincare is always a good bet. You guys know I love Glossier, and their face wash and priming moisturizing rich are just the best. They also have some great gift sets this time of year. On the more budget-friendly side of things, I love this rosewater spray for a daily pick-me-up (I put it on first thing in the morning), and this face oil is one of my all-time favs. 
+
+Books are a great option as well. I've gifted Gretchen Rubin's The Happiness Project and Better Than Before on several occasions, but you also can't go wrong with a great fiction read. For that, I love anything by Liane Moriarty (What Alice Forgot and Big Little Lies are a couple of my favorites) and Celeste Ng (Little Fires Everywhere and Everything I Never Told You). 
+
+I think comfy loungewear is an excellent gift, and I'm obsessed with the joggers from Gap. They're incredibly soft, and if I'm at home, I'm wearing these. Clothing-wise I think the new Universal Thread line at Target is really cute. And anything from Madewell is sure to be a hit. I love browsing their accessories section for gift ideas this time of year. 
+
+I'm not big into jewelry these days, but my favorite Etsy shop for simple, minimal jewelry is Mia & Mac. I bought my sister one of their initial necklaces a few years ago and it's one of her favorites.
 
 
 
