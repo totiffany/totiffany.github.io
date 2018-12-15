@@ -33,7 +33,7 @@ Books are a great option as well. I've gifted Gretchen Rubin's [The Happiness Pr
 
 I think comfy loungewear is an excellent gift, and I'm obsessed with [the joggers from Gap](http://gap.com/browse/product.do?cid=38126&pcid=29504&vid=1&pid=388415012). They're incredibly soft, and if I'm at home, I'm wearing these. Clothing-wise I think the new [Universal Thread line at Target](https://www.target.com/c/universal-thread/-/N-rgtfe) is really cute. And anything from [Madewell](https://www.madewell.com/) is sure to be a hit. I love browsing their accessories section for gift ideas this time of year. 
 
-I'm not big into jewelry these days, but my favorite Etsy shop for simple, minimal jewelry is Mia & Mac. I bought my sister one of their initial necklaces a few years ago and it's one of her favorites.
+I'm not big into jewelry these days, but my favorite Etsy shop for simple, minimal jewelry is [Mia & Mac](https://www.etsy.com/shop/miaandmac). I bought my sister one of [their initial necklaces](https://www.etsy.com/listing/467394026/12-in-14kt-gold-filled-initial-necklace?ga_search_query=initial&ref=shop_items_search_68) a few years ago and it's one of her favorites.
 
 
 
