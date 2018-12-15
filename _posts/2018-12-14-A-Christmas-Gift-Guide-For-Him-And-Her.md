@@ -9,7 +9,7 @@ description: >-
 ---
 When it comes to holiday gift giving I try to keep things simple. The key word being _try_. My recent read of [Simple Matters](https://redletterdayblog.com/Book-Review-5-Decluttering-Tips-From-Simple-Matters) has made me think more about giving gifts that are useful, edible, or experiences. So I'm trying to lean more that way, but it's really easy to get caught up in all the sales and shiny things this time of year and go over budget. 
 
-One way I do manage to keep things simple – Brian and I don't exchange Christmas gifts. I know that will sound crazy to some, but over the years we've found we just don't feel a need to exchange gifts. With all events and shopping and general craziness that comes in December, we don't need the extra stress that comes from finding each other the perfect gift. Instead, we exchange small gifts for birthdays and that works for us. So take that for what it's worth. 
+One way I do manage to keep things simple – Brian and I don't exchange Christmas gifts. I know that will sound crazy to some, but over the years we've found we just don't feel a need to exchange gifts. With all events and shopping and general craziness that comes in December, we don't like feeling the extra stress that comes from finding each other the perfect gift. Instead, we exchange small gifts for birthdays and that works for us. So take that for what it's worth. 
 
 For everyone else in my life I've put together a guide below with a few things I think might make good gifts. I've found it's always a little easier to shop for the women in my life. I can just buy them a bunch of my favorite things! Guys are tricker. 
 
