@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 Hi! Hello! How is everyone? It's been a while since I sat down and wrote a proper blog post. One of my goals last year was to try and write something every week, and I made it to October. So I may not have stuck with it the entire year, but three-fourths is pretty good, right?
 
@@ -14,11 +14,3 @@ Birthdays and new years are a good time to reflect, and I've been trying to figu
 The same goes for this blog. I like writing and sharing things that have been helpful or interesting to me, but there are things about blogging that I struggle with. Consistency is one, self-promotion is another. Telling people when you've written something is pretty essential to getting them to read it, but I struggle with it all the same. Thankfully, I've heard so much good feedback over the past year from people saying they read this or that blog post and letting me know how much they enjoyed it, and that has been so encouraging! I want this to be fun and enjoyable for you all, so thanks for letting me know when you've read something that was interesting to you, and for sticking with me while I figure it out.  
 
 For now, I'm going to keep writing when I can (aiming for 2x/month this year which feels more doable), playing with my baby (who is sadly not such a baby anymore), reading books I love, trying to make more mom friends, and sharing all my favorite things with you. As always, thank you for reading. Here's to 2019!
-
-
-
-
-
-
-
-
