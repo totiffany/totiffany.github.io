@@ -1,6 +1,6 @@
 ---
 published: true
-image: 2019-New-Year-3.jpg
+image: 2019-New-Year-6.jpg
 description: >-
   Hi! Hello! How is everyone? It's been a while since I sat down and wrote a
   proper blog post. One of my goals last year was to try and write something
