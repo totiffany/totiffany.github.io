@@ -7,7 +7,9 @@ description: >-
   every week, and I made it to October. So I may not have stuck with it the
   entire year, but three-fourths is pretty good, right?
 ---
-![2019-New-Year-3.jpg]({{site.baseurl}}/img/2019-New-Year-3.jpg)
+![2019-New-Year-5.jpg]({{site.baseurl}}/img/2019-New-Year-5.jpg)
+![2019-New-Year-4.jpg]({{site.baseurl}}/img/2019-New-Year-4.jpg)
+![2019-New-Year-6.jpg]({{site.baseurl}}/img/2019-New-Year-6.jpg)
 
 Hi! Hello! How is everyone? It's been a while since I sat down and wrote a proper blog post. One of my goals last year was to try and write something every week, and I made it to October. So I may not have stuck with it the entire year, but three-fourths is pretty good, right?
 
