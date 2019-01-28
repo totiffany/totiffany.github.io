@@ -17,7 +17,7 @@ Then Christmas happened and something about being in Idaho makes my desire to do
 
 ![2019-New-Year-4.jpg]({{site.baseurl}}/img/2019-New-Year-4.jpg)
 
-Speaking of my birthday, I turned 30! It feels great, and not as scary as I thought it would be. I'm realizing the older you get the less you tend to care about what other people think of you, and there's something so freeing about that. I spent so much time, energy, and anxiety in my teens and 20's worrying about what I looked like or how I presented myself, and now I can just be. I feel happy and lucky and loved. 
+Speaking of my birthday, I turned 30! It feels great, and not as scary as I thought it would be. I'm realizing the older you get the less you tend to care about what other people think of you, and there's something so freeing about that. I spent so much time, energy, and anxiety in my teens and 20's worrying about what I looked like or how I presented myself, and now I can just _be_. It's a nice feeling. 
 
 Birthdays and new years are a good time to reflect, and I've been trying to figure out what I'd like to do with the next chapter of my life. I'm at a point where I've accomplished all of the big goals I ever set for myself, and I'm only 30! For as long as I can remember I wanted to go to college, get my degree, get married, and have some babies. And I did ALL of that! I have everything I've ever wanted. And it's amazing, and I have a wonderful life, a great husband, and a beautiful daughter, but I also feel like there has to be more, yunno? I can't possibly be done at 30. I want to keep learning and growing, but I'm not exactly sure how or what that looks like yet. 
 
