@@ -6,7 +6,6 @@ github: [metadata]
 # Pagination
 plugins: [jekyll-paginate]
 paginate: 5
-paginate_path: "page:num/"
 
 # jekyll-seo-tag plugin stuff
 plugins:
