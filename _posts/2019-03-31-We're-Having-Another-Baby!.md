@@ -1,5 +1,6 @@
 ---
 published: true
+description: "We’re having another baby! A little boy! My belly really made an appearance over the last month. I already feel huge, and I still have three months to go! Aside from showing much sooner than I did last time (and having a stronger craving for salty, crunchy snacks), everything about this pregnancy feels exactly the same. I’m fortunate in that I don’t get really sick when I’m pregnant, but I do get extremely tired –\_To a point where even a small task seems overwhelming."
 ---
 ![pregante-3.jpg]({{site.baseurl}}/img/pregante-3.jpg)
 
