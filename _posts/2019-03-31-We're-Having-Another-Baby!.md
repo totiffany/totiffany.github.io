@@ -1,9 +1,11 @@
 ---
 published: false
 ---
+[pregante-3.jpg]({{site.baseurl}}/img/pregante-3.jpg)
+
 We’re having another baby! A little boy!
 
-My belly really made an appearance over the last month. I already feel huge, and I still have three months to go! Aside from showing much sooner than I did last time (and having a stronger craving for salty, crunchy snacks), everything about this pregnancy feels exactly the same. I’m fortunate in that I don’t get really sick when I’m pregnant, but I do get extremely tired – To a point where even a small task seems overwhelming. 
+My belly really made an appearance over the last month. I already feel huge, and I still have three months to go! Aside from showing much sooner than I did last time (and having a stronger craving for salty, crunchy snacks), everything about this pregnancy feels exactly the same. I’m fortunate in that I don’t get really sick when I’m pregnant, but I do get extremely tired – To a point where even a small task seems overwhelming.
 
 Hazel’s naps have always been precious time for me, but until I was about 16 weeks along I had to take a nap when she did or I quite literally couldn’t function. Most days the thought of getting dressed and out of the apartment was too much for me. I was that exhausted. Thankfully, making it to the second trimester made such a difference. Aside from being frequently out of breath thanks to my bigger belly, I feel so much better. 
 
@@ -17,4 +19,4 @@ There are still moments where I feel excited of course. This baby has been reall
 
 I’m also wondering if kids can sense when a big change is coming, because Hazel has been really attached to me lately. There’s been lots of crying and whining and clinging for me. And when she refuses to go to her dad because _I just need a minute_ it doesn’t exactly increase my confidence. How is she going to be when I am often holding and tending to another baby? 
 
-So mamas of two small children, any tips for me? Was there anything you did to make the transition from one to two easier? I’d love to hear from you. 
+So mamas of two small children, any tips for me? Was there anything you did to make the transition from one to two easier? I’d love to hear from you.
