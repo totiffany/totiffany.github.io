@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-[pregante-3.jpg]({{site.baseurl}}/img/pregante-3.jpg)
+![pregante-3.jpg]({{site.baseurl}}/img/pregante-3.jpg)
 
 We’re having another baby! A little boy!
 
