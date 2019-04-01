@@ -4,7 +4,6 @@ description: "We’re having another baby! A little boy! My belly really made an
 image: pregante-5.jpg
 ---
 ![pregante-4.jpg]({{site.baseurl}}/img/pregante-4.jpg)
-![pregante-5.jpg]({{site.baseurl}}/img/pregante-5.jpg)
 
 We’re having another baby! A little boy!
 
