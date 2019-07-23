@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 image: Hazel_2.jpg
 description: >-
   Before the baby comes I wanted to be sure to write about our little Hazel
