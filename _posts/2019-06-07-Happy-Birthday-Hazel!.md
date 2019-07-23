@@ -1,6 +1,8 @@
 ---
 published: false
 ---
+![Hazel_2.jpg]({{site.baseurl}}/img/Hazel_2.jpg)
+
 Before the baby comes I wanted to be sure to write about our little Hazel turning 2! Her birthday was at the end of April, so this post is only over a month late. Ha. I had big plans that day to throw a party for her with a few of our closest friends and family. But she woke up sick and and refused to nap, so we canceled our plans and went for a drive around the city instead. Thankfully she always falls asleep on long drives. 
 
 Here are a few updates on my baby girl who I can't believe is 2... 
