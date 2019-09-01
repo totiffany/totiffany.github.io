@@ -3,7 +3,8 @@ published: false
 ---
 ![Turley_Family_1.jpg]({{site.baseurl}}/img/Turley_Family_1.jpg)
 ![Turley_Family_2.jpg]({{site.baseurl}}/img/Turley_Family_2.jpg)
-
+![Turley_Family_4.jpg]({{site.baseurl}}/img/Turley_Family_4.jpg)
+![Turley_Family_5.jpg]({{site.baseurl}}/img/Turley_Family_5.jpg)
 
 My friend Hilary took these photos when Wallace was around three weeks old. We managed to get a couple good shots, but mostly I think they capture the craziness that is our lives right now. We tried bribing Hazel with animal crackers to get her to cooperate, which she has in her mouth in most of the pictures.
 
