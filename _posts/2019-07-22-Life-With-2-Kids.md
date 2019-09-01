@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ![Turley_Family_1.jpg]({{site.baseurl}}/img/Turley_Family_1.jpg)
 ![Turley_Family_2.jpg]({{site.baseurl}}/img/Turley_Family_2.jpg)
