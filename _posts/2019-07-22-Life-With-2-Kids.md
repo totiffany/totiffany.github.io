@@ -1,6 +1,10 @@
 ---
 published: false
 ---
+![Turley_Family_1.jpg]({{site.baseurl}}/img/Turley_Family_1.jpg)
+![Turley_Family_2.jpg]({{site.baseurl}}/img/Turley_Family_2.jpg)
+
+
 My friend Hilary took these photos when Wallace was around three weeks old. We managed to get a couple good shots, but mostly I think they capture the craziness that is our lives right now. We tried bribing Hazel with animal crackers to get her to cooperate, which she has in her mouth in most of the pictures.
 
 Brian just wrapped up his second week at work after paternity leave. So I've been on my own during the day with both kids for a little while now. Overall it's going better that I expected. I mean, we're all alive, so that's something. I've been getting out of the apartment almost every day with both of them, which is no easy feat, but more on that later. And typically by the time Brian gets home both kids are happy, fed, and changed. So I think we're doing alright.
